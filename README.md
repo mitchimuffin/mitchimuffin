@@ -41,7 +41,7 @@
 
 
 
- >_< ' yu can call me ;;  muffin, lizzie, punpun/punni . ] - ☀︎
+ - yu can call me ;;  muffin, lizzie, punpun/punni . ] - ☀︎
 
 
 enfp 7w8 . !!
