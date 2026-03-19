@@ -1,3 +1,14 @@
+
+
+
+![17739268083658531396188709144714](https://github.com/user-attachments/assets/e7325a5b-8d1b-4c67-ace9-abef148f80c7)
+
+
+
+
+
+
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 " my soul 
@@ -20,7 +31,7 @@ to find yours . "
 
 
 
->_< ' yu can call me ;; [ muffin, lizzie, punpun/punni . ] - ☀︎
+ >_< ' yu can call me ;;  muffin, lizzie, punpun/punni . ] - ☀︎
 
 
 enfp 7w8 . !!
@@ -35,7 +46,7 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
-:3 ' gndr-prns-sexuality ;; [she/her . cis girl. straight ! ] - ☀︎⠀⠀
+:3 ' gndr-prns-sexuality ;; she/her . cis girl. straight ! ] - ☀︎⠀⠀
 
 
 
@@ -47,14 +58,14 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
-<3 ' yes/ok ! ;; [ b friends (depends!), yapping 2gthr, cuds . ]
+<3 ' yes/ok ! ;;  b friends (depends!), yapping 2gthr, cuds . ]
 
 
 
 
 
 
-<\3 ' no/ehh ! ;; [ racism by any kind. disrespecting my boundaries. ]
+<\3 ' no/ehh ! ;;  racism by any kind. disrespecting my boundaries. ]
 
 
 
