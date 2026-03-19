@@ -97,7 +97,7 @@ im big into science ! * esp chemistry nd astronomy<3 .
 
 
 
-fnaf, dhmis. DRV123, gachiakuta, bnha/mha, DP, interstellar, CRP, jjk, PJSK/vocaloid, AT, GF, harry potter (YES, im a marauders fan!), hoyovers, crk, DN, resident evil, TWST, trinity blood, windbreaker, pjo/EPIC, pmmm, BSD, Naruto, omori, TR, TG, ppt, unikitty, LNG, TADC, MD, eddsworld, gokurakugai, black clover, les mis, ranfren, dc, marvel, dsmp, clarence, zelda, arcane, hollow knight/silksong, LMK, DMC, valorant, stranger things, IT/welcome to derry, yaelokre, kny nd many many more... hehe. ★
+fnaf, dhmis. DRV123, gachiakuta, bnha/mha, DP, interstellar, CRP, jjk, PJSK/vocaloid, AT, GF, harry potter (YES, im a marauders fan!), hoyovers, crk, DN, resident evil, TWST, trinity blood, windbreaker, pjo/EPIC, pmmm, BSD, Naruto, omori, TR, TG, ppt, unikitty, LNG, TADC, MD, eddsworld, gokurakugai, black clover, les mis, ranfren, dc, marvel, dsmp, clarence, zelda, arcane, hollow knight/silksong, LMK, DMC, valorant, stranger things, IT/welcome to derry, ben10, yaelokre, kny nd many many more... hehe. ★
 
 
 
