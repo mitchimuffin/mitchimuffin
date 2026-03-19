@@ -11,9 +11,9 @@
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-" my soul 
-has traveled long and far
-to find yours . "
+" 𝙢𝙮 𝙨𝙤𝙪𝙡 
+𝙝𝙖𝙨 𝙩𝙧𝙖𝙫𝙚𝙡𝙚𝙙 𝙡𝙤𝙣𝙜 𝙖𝙣𝙙 𝙛𝙖𝙧
+𝙩𝙤 𝙛𝙞𝙣𝙙 𝙮𝙤𝙪𝙧𝙨  . "
 
 - ben maxfield. 
 
@@ -25,6 +25,16 @@ to find yours . "
 
 
 — 居たい きみの横 そっと⠀⠀. 𖥔 `
+
+
+
+
+
+![17739271431314191362133695117635](https://github.com/user-attachments/assets/d33b69e7-10ef-4a7d-8445-21c7d4b9cf4e)
+
+
+
+
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹✧˖°⠀⠀⠀⠀⠀⠀⠀⠀hey, !
