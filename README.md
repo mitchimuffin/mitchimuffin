@@ -45,12 +45,16 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
+
 :3 ' gndr-prns-sexuality ;; [she/her . cis girl. straight ! ] - ☀︎⠀⠀
 
 
 
 
+
 ︵ .
+
 
 
 
@@ -61,7 +65,10 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
 <\3 ' no/ehh ! ;; [ racism by any kind. disrespecting my boundaries. ]
+
+
 
 
 
@@ -70,7 +77,10 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
+
 fandoms / interests ;;
+
 
 
 
