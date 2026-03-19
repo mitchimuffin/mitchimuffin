@@ -19,7 +19,12 @@
 
 
 
+
+
     ★
+
+
+
 
 
 
@@ -49,6 +54,8 @@ enfp 7w8 . !!
 
 
 
+
+
 Hufflepuff, iris/cabin 14 . ✧
 
 
@@ -56,7 +63,11 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
+
 :3 ' gndr-prns-sexuality ;; she/her . cis girl. straight ! ] - ☀︎⠀⠀
+
+
 
 
 
@@ -75,6 +86,10 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
+
+
+
 <\3 ' no/ehh ! ;;  racism by any kind. disrespecting my boundaries. ]
 
 
@@ -82,7 +97,14 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
+
+
+
+
 ! ' dnc/inspo . ٭.ᯓ 
+
+
+
 
 
 
@@ -100,10 +122,21 @@ im big into science ! * esp chemistry nd astronomy<3 .
 fnaf, dhmis. DRV123, gachiakuta, bnha/mha, DP, interstellar, CRP, jjk, PJSK/vocaloid, AT, GF, harry potter (YES, im a marauders fan!), hoyovers, crk, DN, resident evil, TWST, trinity blood, windbreaker, pjo/EPIC, pmmm, BSD, Naruto, omori, TR, TG, ppt, unikitty, LNG, TADC, MD, eddsworld, gokurakugai, black clover, les mis, ranfren, dc, marvel, dsmp, clarence, zelda, arcane, hollow knight/silksong, LMK, DMC, valorant, stranger things, IT/welcome to derry, ben10, yaelokre, kny nd many many more... hehe. ★
 
 
+٭.ᯓ ܀ .
 
 
+![17739437408327204966554819651774](https://github.com/user-attachments/assets/cc072d6b-ad0d-4e3e-a605-74f8a171e4a8)
 
-if yu wna talk, do it ! idm <3 .
+
+   ^
+   |
+biggest kins <3.
+
+
+٭.ᯓ ܀ .
+
+
+if yu wna talk, do it ! idm . კ 
 
 
 <!--
