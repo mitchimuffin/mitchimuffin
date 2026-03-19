@@ -129,14 +129,13 @@ fnaf, dhmis. DRV123, gachiakuta, bnha/mha, DP, interstellar, CRP, jjk, PJSK/voca
 
 
    ^
-   |
 biggest kins <3.
 
 
 ٭.ᯓ ܀ .
 
 
-if yu wna talk, do it ! idm . კ 
+if yu wna talk, do it !! idm.💫 
 
 
 <!--
