@@ -90,7 +90,7 @@ Hufflepuff, iris/cabin 14 . ✧
 
 
 
-<\3 ' no/ehh ! ;;  racism by any kind. disrespecting my boundaries. ]
+<\3 ' no/ehh ! ;;  racism by any kind. disrespecting my boundaries. mean for no reason. ]
 
 
 
