@@ -1,7 +1,8 @@
 
 
 
-![17739268083658531396188709144714](https://github.com/user-attachments/assets/e7325a5b-8d1b-4c67-ace9-abef148f80c7)
+
+ ![17739268083658531396188709144714](https://github.com/user-attachments/assets/e7325a5b-8d1b-4c67-ace9-abef148f80c7)
 
 
 
@@ -135,7 +136,7 @@ biggest kins <3.
 ٭.ᯓ ܀ .
 
 
-if yu wna talk, do it !! idm.💫 
+if yu wna talk, do it !! idm. ✶
 
 
 <!--
