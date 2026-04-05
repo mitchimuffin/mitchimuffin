@@ -2,7 +2,7 @@
 
 
 
- ![17739268083658531396188709144714](https://github.com/user-attachments/assets/e7325a5b-8d1b-4c67-ace9-abef148f80c7)
+   ![17739268083658531396188709144714](https://github.com/user-attachments/assets/e7325a5b-8d1b-4c67-ace9-abef148f80c7)
 
 
 
@@ -41,7 +41,7 @@ biggest kins <3.
 
 
 
-int freely, im pretty chill :⁠^⁠) unless yur mean for no reason then uhh dni :^\
+int freely, im pretty chill :⁠^⁠) unless yur mean for no reason then uhh dni :^\ or i hve dniuf !
 
 <!--
 **mitchimuffin/mitchimuffin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
