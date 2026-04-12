@@ -8,7 +8,7 @@
 
 
 
-enfp 7w8 . !! Hufflepuff, iris kiddo / cabin 14 . ✧
+enfp 7w8 . !! Hufflepuff, iris kiddo / cabin 14 .
 
 
 
@@ -18,7 +18,7 @@ enfp 7w8 . !! Hufflepuff, iris kiddo / cabin 14 . ✧
 
 
 
-︵ .
+ᛝ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ᛝ
 
 
 
