@@ -3,11 +3,14 @@
 </p>
 
 <p align="center">
-  — https://mitchimuffiin.atabook.org
+  　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
+
 <p align="center">
-  — https://mitchimuffin.straw.page
+✶  — https://mitchimuffiin.atabook.org
 <p align="center">
-  — https://en.pronouns.page/@mitchimuffin
+✶  — https://mitchimuffin.straw.page
+<p align="center">
+✶  — https://en.pronouns.page/@mitchimuffin
 
 
 
