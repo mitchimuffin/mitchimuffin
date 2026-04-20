@@ -20,4 +20,4 @@
 </p>
 
 <p align="center">
-int freely, im pretty chill :^3
+  $\color{#DE0700}{\texts{IT'S ME }}$
