@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+  $\color{#DE0700}{\textsf{IT'S ME}}$
+  
+
+<p align="center">
   　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
 
 <p align="center">
@@ -20,4 +24,4 @@
 </p>
 
 <p align="center">
-  $\color{#DE0700}{\texts{IT'S ME }}$
+  $\color{#DE0700}{\textsf{int freely, im pretty chill :3}}$
