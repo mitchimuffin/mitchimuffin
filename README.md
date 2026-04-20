@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  $\color{#DE0700}{\textsf{IT'S ME}}$
+  $\color{#DE0700}{\textsf{꒰ა ⠀IT'S ME⠀ ໒꒱}}$
   
 
 <p align="center">
@@ -29,4 +29,4 @@
 <a href="/gif/fnaf-sister-location-title-screen-sl-menu-music-five-nights-at-freddys-circus-baby-8Mxq4H" title="FNaF: Sister Location Title Screen | SL Menu Music | Five Nights at Freddy&#039;s Circus Baby"><img src="https://i.makeagif.com/media/5-15-2017/8Mxq4H.gif" alt="FNaF: Sister Location Title Screen | SL Menu Music | Five Nights at Freddy&#039;s Circus Baby"></a><div style="font-size:11px;"></div>
   
 <p align="center">
-  $\color{#DE0700}{\textsf{ I'll make you proud.}}$
+  $\color{#DE0700}{\textsf{ 𖥔 I'll make you proud. 𖥔 }}$
