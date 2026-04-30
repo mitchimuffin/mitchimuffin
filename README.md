@@ -1,11 +1,10 @@
 <p align="center">
-  <img src="https://i.makeagif.com/media/7-20-2015/c4UDWj.gif" alt="Fnaf 1 Golden freddy's jumpscare" />
+  <img src="https://i.pinimg.com/736x/f7/04/5e/f7045e78ed26cd41cf14b2831512d9f1.jpg"/>
 </p>
 
 <p align="center">
-  $\color{#DE0700}{\textsf{꒰ა ⠀IT'S ME⠀ ໒꒱}}$
+$\color{#7A5747}{\textsf{ "‎ anything for our moony " }}$
   
-
 <p align="center">
   　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
 
