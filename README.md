@@ -31,3 +31,9 @@ hi („• ֊ •„)
 ︶⊹︶︶୨୧︶︶⊹︶
 
 </p>
+<p align="center">
+  <img src="https://i.pinimg.com/736x/c3/19/15/c3191572ae2d273c4c4ba1e13d4de0e5.jpg"/>
+</p>
+
+<p align="center">
+take care of yurself, buddy<3.
