@@ -36,4 +36,4 @@ yo !!
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ "‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. " }}$
+$\color{#E50000}{\textsf{ "‎ "‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. " }}$
