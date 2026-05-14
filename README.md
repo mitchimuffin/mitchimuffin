@@ -10,7 +10,7 @@ yo !!
 
   
 <p align="center">
-  　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
+ ❯❯❯❯❯❯❯❯❯❯❯❯
 
 <p align="center">
 ✶  — https://mitchimuffiin.atabook.org
@@ -28,7 +28,7 @@ yo !!
 ✶ — https://mitchimuffin.carrd.co/
   
 <p align="center">
-︶⊹︶︶୨୧︶︶⊹︶
+  ܔܢܜܔܢܜܔܔܔܢܜܔܔܔ
 
 </p>
 <p align="center">
