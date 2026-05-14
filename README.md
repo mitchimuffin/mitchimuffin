@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ "‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, " }}$
+$\color{#E50000}{\textsf{"‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, "}}$
 
 <p align="center">
 yo !!
@@ -36,4 +36,4 @@ yo !!
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ "‎ "‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. " }}$
+$\color{#E50000}{\textsf{"‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. "}}$
