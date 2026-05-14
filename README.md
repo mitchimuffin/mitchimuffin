@@ -1,12 +1,12 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/f7/04/5e/f7045e78ed26cd41cf14b2831512d9f1.jpg"/>
+  <img src="https://i.pinimg.com/736x/3f/76/05/3f7605af4c35314024a3704188d61e24.jpg"/>
 </p>
 
 <p align="center">
-$\color{#7A5747}{\textsf{ "‎ anything for our moony " }}$
+$\color{#E50000}{\textsf{ "‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, " }}$
 
 <p align="center">
-hi („• ֊ •„)
+yo !!
 
   
 <p align="center">
@@ -32,8 +32,8 @@ hi („• ֊ •„)
 
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/736x/c3/19/15/c3191572ae2d273c4c4ba1e13d4de0e5.jpg"/>
+  <img src="https://i.pinimg.com/736x/10/fe/bd/10febd2daaf057246317d66a00c99f0d.jpg"/>
 </p>
 
 <p align="center">
-take care of yurself, buddy<3.
+$\color{#E50000}{\textsf{ "‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. " }}$
