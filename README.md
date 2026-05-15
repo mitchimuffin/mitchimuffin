@@ -5,10 +5,7 @@
 <p align="center">
 $\color{#E50000}{\textsf{"‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, "}}$
 
-<p align="center">
-yo !!
-
-  
+ 
 <p align="center">
  ❯❯❯❯❯❯❯❯❯❯❯❯
 
@@ -30,10 +27,10 @@ yo !!
 <p align="center">
   ܔܢܜܔܢܜܔܔܔܢܜܔܔܔ
 
-</p>
-<p align="center">
-  <img src="https://i.pinimg.com/736x/10/fe/bd/10febd2daaf057246317d66a00c99f0d.jpg"/>
-</p>
 
 <p align="center">
 $\color{#E50000}{\textsf{"‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. "}}$
+  
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/10/fe/bd/10febd2daaf057246317d66a00c99f0d.jpg"/>
