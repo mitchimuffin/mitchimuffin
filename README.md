@@ -18,8 +18,6 @@ $\color{#E50000}{\textsf{ free Palestine. }}$
 <p align="center">
 ✶ — https://rentry.co/kifzt6zx
 <p align="center">
-✶ — https://t.me/mitchimuffin
-<p align="center">
 ✶ — https://pin.it/3l592oGvi
 <p align="center">
 ✶ — https://mitchimuffin.carrd.co/
