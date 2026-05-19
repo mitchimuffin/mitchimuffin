@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/3f/76/05/3f7605af4c35314024a3704188d61e24.jpg"/>
+  <img src="https://upload.wikimedia.org/wikipedia/commons/0/00/Flag_of_Palestine.svg"/>
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{"‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, "}}$
+$\color{#E50000}{\textsf{ free Palestine. }}$
 
  
 <p align="center">
@@ -28,9 +28,7 @@ $\color{#E50000}{\textsf{"‎ I ЯΣJΣᑕƬ ΣVΣЯYƬΉIПG YӨЦ'VΣ ƧΛID, 
   ܔܢܜܔܢܜܔܔܔܢܜܔܔܔ
 
 
-<p align="center">
-$\color{#E50000}{\textsf{"‎ ΛПD I ΣMBЯΛᑕΣ ΣVΣЯYƬΉIПG YӨЦ ЯΣJΣᑕƬ. "}}$
-  
+
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/10/fe/bd/10febd2daaf057246317d66a00c99f0d.jpg"/>
+  <img src="https://i.pinimg.com/736x/89/ed/83/89ed831067cf2e4bfa1301d74edb8605.jpg"/>
