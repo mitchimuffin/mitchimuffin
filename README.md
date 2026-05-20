@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ being kind is punk rock. }}$
+$\color{#E50000}{\textsf{ .𖥔 ݁ ˖   being kind is punk rock◞. }}$
 
  
 <p align="center">
@@ -23,7 +23,7 @@ $\color{#E50000}{\textsf{ being kind is punk rock. }}$
 ✶ — https://mitchimuffin.carrd.co/
   
 <p align="center">
- . ݁₊ ⊹ . ݁˖ . ݁  ⋆ ˚｡ ˚ ˖°  ﹒  ◠   ✩        ⊹    ﹒
+ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
 
