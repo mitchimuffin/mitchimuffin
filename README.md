@@ -1,13 +1,13 @@
 <p align="center">
-  <img src="https://upload.wikimedia.org/wikipedia/commons/0/00/Flag_of_Palestine.svg"/>
+  <img src="https://i.pinimg.com/1200x/94/91/f2/9491f2e407efcbd98b8e8c3ff4fdd3ed.jpg"/>
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ free Palestine. }}$
+$\color{#E50000}{\textsf{ being kind is punk rock. }}$
 
  
 <p align="center">
- ❯❯❯❯❯❯❯❯❯❯❯❯
+         　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
 
 <p align="center">
 ✶  — https://mitchimuffiin.atabook.org
@@ -23,10 +23,10 @@ $\color{#E50000}{\textsf{ free Palestine. }}$
 ✶ — https://mitchimuffin.carrd.co/
   
 <p align="center">
-  ܔܢܜܔܢܜܔܔܔܢܜܔܔܔ
+ . ݁₊ ⊹ . ݁˖ . ݁  ⋆ ˚｡ ˚ ˖°  ﹒  ◠   ✩        ⊹    ﹒
 
 
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/89/ed/83/89ed831067cf2e4bfa1301d74edb8605.jpg"/>
+  <img src="https://i.pinimg.com/1200x/76/90/f0/7690f0c5078345f2de17520523e7ddce.jpg"/>
