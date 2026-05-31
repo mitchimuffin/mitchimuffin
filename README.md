@@ -21,6 +21,8 @@ $\color{#E50000}{\textsf{ .𖥔 ݁ ˖   being kind is punk rock◞. }}$
 ✶ — https://pin.it/3l592oGvi
 <p align="center">
 ✶ — https://mitchimuffin.carrd.co/
+<p align="center">
+✶ — https://guns.lol/mitchimuffin
   
 <p align="center">
  ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
