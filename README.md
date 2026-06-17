@@ -31,4 +31,4 @@ $\color{#E50000}{\textsf{ .𖥔 ݁ ˖   being kind is punk rock◞. }}$
 
 
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/76/90/f0/7690f0c5078345f2de17520523e7ddce.jpg"/>
+  <img src="https://files.catbox.moe/ocgx9e.png"/>
