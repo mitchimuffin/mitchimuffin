@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-$\color{#E50000}{\textsf{ .𖥔 ݁ ˖   being kind is punk rock◞. }}$
+ . 🗝️ ݁ ˖  if we're together.◞.   👁️‍🗨️
 
  
 <p align="center">
