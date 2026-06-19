@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/94/91/f2/9491f2e407efcbd98b8e8c3ff4fdd3ed.jpg"/>
+  <img src="https://files.catbox.moe/rwnd5w.jpg"/>
 </p>
 
 <p align="center">
@@ -26,9 +26,3 @@ $\color{#E50000}{\textsf{ .𖥔 ݁ ˖   being kind is punk rock◞. }}$
   
 <p align="center">
  ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
-
-
-
-<p align="center">
-  <img src="https://files.catbox.moe/ocgx9e.png"/>
