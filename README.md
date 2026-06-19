@@ -25,4 +25,4 @@
 ✶ — https://guns.lol/mitchimuffin
   
 <p align="center">
- ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+ ⊹₊˚‧︵‿₊୨ 𖦹 ୧₊‿︵‧˚₊⊹
