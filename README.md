@@ -3,24 +3,15 @@
 </p>
 
 <p align="center">
- . 🗝️ ݁ ˖  if we're together.◞.   👁️‍🗨️
+👁️‍🗨️.
 
- 
-<p align="center">
-         　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
-
-<p align="center">
-✶  — https://mitchimuffiin.atabook.org
-<p align="center">
-✶  — https://mitchimuffin.straw.page
-<p align="center">
-✶  — https://en.pronouns.page/@mitchimuffin
-<p align="center">
-✶ — https://rentry.co/kifzt6zx
-<p align="center">
-✶ — https://mitchimuffin.carrd.co
-<p align="center">
-✶ — https://guns.lol/mitchimuffin
   
-<p align="center">
- ⊹₊˚‧︵‿₊୨ 𖦹 ୧₊‿︵‧˚₊⊹
+
+  
+[carrd.](https://mitchimuffin.carrd.co/)
+[ata.](https://mitchimuffiin.atabook.org)
+[straw.](https://mitchimuffin.straw.page)
+[prns.](https://en.pronouns.page/@mitchimuffin)
+[rentry.](https://rentry.co/kifzt6zx)
+[carrd.](https://mitchimuffin.carrd.co)
+[guns.](https://guns.lol/mitchimuffin)
