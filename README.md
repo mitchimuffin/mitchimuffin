@@ -5,13 +5,26 @@
 <p align="center">
 👁️‍🗨️.
 
+  <p align="center">
+  <a href="https://mitchimuffin.carrd.co/">carrd</a> •
+  <a 
+
+<p align="center">
+  <a href="https://mitchimuffiin.atabook.org">ata</a>
+
+ <p align="center">
+  <a href="https://mitchimuffin.straw.page">straw</a> •
   
 
+<p align="center">
+  <a href="https://en.pronouns.page/@mitchimuffin">prns</a> • 
+
   
-[carrd.](https://mitchimuffin.carrd.co/)
-[ata.](https://mitchimuffiin.atabook.org)
-[straw.](https://mitchimuffin.straw.page)
-[prns.](https://en.pronouns.page/@mitchimuffin)
-[rentry.](https://rentry.co/kifzt6zx)
-[carrd.](https://mitchimuffin.carrd.co)
-[guns.](https://guns.lol/mitchimuffin)
+<p align="center">
+  <a href="https://rentry.co/kifzt6zx">rentry</a> •
+
+  <p align="center">
+  <a href="https://mitchimuffin.carrd.co">carrd</a> •
+
+ <p align="center">
+  <a href="https://guns.lol/mitchimuffin">guns</a> 
