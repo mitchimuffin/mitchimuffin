@@ -10,7 +10,7 @@
          　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
 
 <p align="center">
-✶  — https://mitchimuffiin.atabook.org
+✶  —https://mitchimuffiin.atabook.org
 <p align="center">
 ✶  — https://mitchimuffin.straw.page
 <p align="center">
@@ -18,9 +18,7 @@
 <p align="center">
 ✶ — https://rentry.co/kifzt6zx
 <p align="center">
-✶ — https://pin.it/3l592oGvi
-<p align="center">
-✶ — https://mitchimuffin.carrd.co/
+✶ — wip !!
 <p align="center">
 ✶ — https://guns.lol/mitchimuffin
   
