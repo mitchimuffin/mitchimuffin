@@ -10,17 +10,17 @@
          　 ྀི︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜   ◞˚̣̣̣ ྀི︶ ྀི
 
 <p align="center">
-✶  —https://mitchimuffiin.atabook.org
+✶  —[ata](https://mitchimuffiin.atabook.org)
 <p align="center">
-✶  — https://mitchimuffin.straw.page
+✶  — [straw](https://mitchimuffin.straw.page)
 <p align="center">
-✶  — https://en.pronouns.page/@mitchimuffin
+✶  — [prns](https://en.pronouns.page/@mitchimuffin)
 <p align="center">
-✶ — https://rentry.co/kifzt6zx
+✶ — [ren](https://rentry.co/kifzt6zx)
 <p align="center">
-✶ — https://mitchimuffin.carrd.co)
+✶ — [carrd](https://mitchimuffin.carrd.co)
 <p align="center">
-✶ — https://guns.lol/mitchimuffin
+✶ — [guns](https://guns.lol/mitchimuffin)
   
 <p align="center">
  ⊹₊˚‧︵‿₊୨ 𖦹 ୧₊‿︵‧˚₊⊹
