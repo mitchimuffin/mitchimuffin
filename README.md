@@ -14,7 +14,7 @@
   <a 
 
 <p align="center">
-  <a href="https://mitchimuffiin.atabook.org">ata</a>
+  <a href="https://mitchimuffiin.atabook.org">ata</a> •
   <a 
 
  <p align="center">
@@ -29,10 +29,6 @@
   
 <p align="center">
   <a href="https://rentry.co/kifzt6zx">rentry</a> •
-  <a 
-
-  <p align="center">
-  <a href="https://mitchimuffin.carrd.co">carrd</a> •
   <a 
 
  <p align="center">
