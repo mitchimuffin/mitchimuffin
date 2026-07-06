@@ -6,7 +6,7 @@
 👁️‍🗨️.
 
 <p align="center">
-⊹₊˚‧︵‿₊𓏵₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊ 𓏵 ₊‿︵‧˚₊⊹
 
 
   <p align="center">
@@ -33,3 +33,6 @@
 
  <p align="center">
   <a href="https://guns.lol/mitchimuffin">guns</a> 
+
+  <p align="center"> 
+  my ao3 is mizimizii, i might upload sum ocs stuff or anythn :3.
