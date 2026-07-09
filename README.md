@@ -3,10 +3,10 @@
 </p>
 
 <p align="center">
-🎂.
+🧸.
 
 <p align="center">
-⊹₊˚‧︵‿₊ 𓏵 ₊‿︵‧˚₊⊹
+⊹₊‧︵‿ 𓏵 ‿︵‧₊⊹
 
 
   <p align="center">
