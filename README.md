@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://files.catbox.moe/rwnd5w.jpg"/>
+  <img src="https://files.catbox.moe/7ivvr8.jpg"/>
 </p>
 
 <p align="center">
-👁️‍🗨️.
+🎂.
 
 <p align="center">
 ⊹₊˚‧︵‿₊ 𓏵 ₊‿︵‧˚₊⊹
