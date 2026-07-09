@@ -3,11 +3,10 @@
 </p>
 
 <p align="center">
-🧸.
+
 
 <p align="center">
-⊹₊‧︵‿ 𓏵 ‿︵‧₊⊹
-
+  ﹒⌗﹒🧸﹒౨ৎ˚₊‧
 
   <p align="center">
   <a href="https://mitchimuffin.carrd.co/">carrd</a> ★
