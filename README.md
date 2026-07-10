@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  ﹒⌗﹒💤﹒౨ৎ˚₊‧
+  ﹒⌗﹒tomorrow is another day﹒౨ৎ˚₊‧
 
   <p align="center">
   <a href="https://mitchimuffin.carrd.co/">carrd</a> ★
