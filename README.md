@@ -1,6 +1,6 @@
-wff1  <p align="center">
+ <p align="center">
   <a href="https://www.youtube.com/watch?v=oHg5SJYRHA0">click me!</a> ★
-  <a 
+  
 <p align="center">
   <img src="https://h.uguu.se/hbwAWhMb.jpg"/>
 </p>
@@ -9,7 +9,7 @@ wff1  <p align="center">
 
 
 <p align="center">
-  ﹒⌗ lets play a game, jst me & yu﹒౨ৎ˚₊‧
+  ﹒⌗ bite me >:3 !! ﹒౨ৎ˚₊‧
 
   <p align="center">
   <a href="https://mitchimuffin.carrd.co/">carrd</a> ★
