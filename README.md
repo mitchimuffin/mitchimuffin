@@ -9,7 +9,13 @@
 
 
 <p align="center">
-  ﹒⌗ bite me >:3 !! ﹒౨ৎ˚₊‧
+ $${\color{#ff0000}M}
+{\color{#ff7f00}U}
+{\color{#ffff00}F}
+{\color{#00ff00}F}
+{\color{#0000ff}I}
+{\color{#4b0082}N}
+$$
 
   <p align="center">
   <a href="https://mitchimuffin.carrd.co/">carrd</a> ★
