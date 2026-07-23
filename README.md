@@ -9,12 +9,13 @@
 
 
 <p align="center">
- $${\color{#ff0000}M}
-{\color{#ff7f00}U}
-{\color{#ffff00}F}
-{\color{#00ff00}F}
-{\color{#0000ff}I}
-{\color{#4b0082}N}
+ $${\color{#ff0000}B}
+{\color{#ff7f00}I}
+{\color{#ffff00}T}
+{\color{#00ff00}E}
+{\color{#000000}.}
+{\color{#2251FF}M}
+{\color{#9021FF}E}
 $$
 
   <p align="center">
