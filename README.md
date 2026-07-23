@@ -14,7 +14,7 @@
 {\color{#ffff00}T}
 {\color{#00ff00}E}
 {\color{#000000}.}
-{\color{#2251FF}M}
+{\color{#1F77E3}M}
 {\color{#9021FF}E}
 $$
 
