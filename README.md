@@ -1,5 +1,5 @@
  <p align="center">
-  <a href="https://www.youtube.com/watch?v=oHg5SJYRHA0">only 4 the curious :) </a> ★
+  <a href="https://www.youtube.com/watch?v=oHg5SJYRHA0">only 4 the curious.. </a> ★
   
 <p align="center">
   <img src="https://h.uguu.se/hbwAWhMb.jpg"/>
