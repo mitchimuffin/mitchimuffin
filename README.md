@@ -13,14 +13,13 @@
 
 
 <p align="center">
- $${\color{#ff0000}s}
-{\color{#ff7f00}i}
-{\color{#ffff00}g}
-{\color{#00ff00}n}
-{\color{#FFFFFF},}
-{\color{#1F77E3}t}
-{\color{#9021FF}y}
-{\color{#FF77F3}!}
+ $${\color{#ff0000}h}
+{\color{#ff7f00}e}
+{\color{#ffff00}l}
+{\color{#00ff00}l}
+{\color{#1F77E3}o}
+{\color{#BB5DFF}!}
+{\color{#BB5DFF}!}
 $$
 
   <p align="center">
