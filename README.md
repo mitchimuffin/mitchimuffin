@@ -11,10 +11,19 @@
 
 
 <p align="center">
- $${\color{#ff7f00} oh,}
- {\color{#ff7f00}Im}
- {\color{#ff7f00}just}
- {\color{#ff7f00}a} {\color{#ff7f00}kid. ⋆.˚˖࿔ ࣪}
+ $${\color{#ff7f00}b}
+ {\color{#ff7f00}e}
+ {\color{#000000}.}
+ {\color{#ff7f00}m}
+ {\color{#ff7f00}y} 
+ {\color{#000000}.}
+ {\color{#ff7f00}f}
+ {\color{#ff7f00}r}
+ {\color{#ff7f00}i}
+ {\color{#ff7f00}e}
+ {\color{#ff7f00}n}
+ {\color{#ff7f00}d}
+ {\color{#ff7f00}?}
 $$
 
   <p align="center">
