@@ -11,13 +11,10 @@
 
 
 <p align="center">
- $${\color{#ff0000}h}
-{\color{#ff7f00}e}
-{\color{#ffff00}l}
-{\color{#00ff00}l}
-{\color{#1F77E3}o}
-{\color{#BB5DFF}!}
-{\color{#BB5DFF}!}
+ $${\color{#ff7f00} oh,}
+ {\color{#ff7f00}Im}
+ {\color{#ff7f00}just}
+ {\color{#ff7f00}a} {\color{#ff7f00}kid. ⋆.˚˖࿔ ࣪}
 $$
 
   <p align="center">
