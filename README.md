@@ -1,21 +1,26 @@
  <p align="center">
   <a href="https://www.youtube.com/watch?v=oHg5SJYRHA0">only 4 the curious.. </a> ★
-  
+
+ <p align="center">
+   ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 <p align="center">
-  <img src="https://h.uguu.se/hbwAWhMb.jpg"/>
+  <img src="https://files.catbox.moe/dpcdex.jpeg"/>
 </p>
+<p align="center">
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 <p align="center">
 
 
 <p align="center">
- $${\color{#ff0000}B}
-{\color{#ff7f00}I}
-{\color{#ffff00}T}
-{\color{#00ff00}E}
-{\color{#000000}.}
-{\color{#1F77E3}M}
-{\color{#9021FF}E}
+ $${\color{#ff0000}s}
+{\color{#ff7f00}i}
+{\color{#ffff00}g}
+{\color{#00ff00}n}
+{\color{#FFFFFF},}
+{\color{#1F77E3}t}
+{\color{#9021FF}y}
+{\color{#FF77F3}!}
 $$
 
   <p align="center">
