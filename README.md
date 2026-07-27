@@ -1,10 +1,10 @@
- <p align="center">
-  <a href="https://www.youtube.com/watch?v=oHg5SJYRHA0">only 4 the curious.. </a> ★
 
 <p align="center">
-  <img src="https://files.catbox.moe/dpcdex.jpeg"/>
-</p>
-<p align="center">
+ 
+<img src= https://media1.tenor.com/m/-n7Dj9VLwHkAAAAd/bangs-plane.gif/>
+ 
+<p align="center"
+ 
 ︶⏝︶୨୧︶⏝︶
 
 <p align="center">
