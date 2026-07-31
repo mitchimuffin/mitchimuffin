@@ -9,19 +9,19 @@
 
 
 <p align="center">
- $${\color{#ff7f00}b}
- {\color{#ff7f00}e}
+ $${\color{#FFC6E8}b}
+ {\color{#FFC6E8}e}
  {\color{#000000}.}
- {\color{#ff7f00}m}
- {\color{#ff7f00}y} 
+ {\color{#FFC6E8}m}
+ {\color{#FFC6E8}y} 
  {\color{#000000}.}
- {\color{#ff7f00}f}
- {\color{#ff7f00}r}
- {\color{#ff7f00}i}
- {\color{#ff7f00}e}
- {\color{#ff7f00}n}
- {\color{#ff7f00}d}
- {\color{#ff7f00}?}
+ {\color{#FFC6E8}f}
+ {\color{#FFC6E8}r}
+ {\color{#FFC6E8}i}
+ {\color{#FFC6E8}e}
+ {\color{#FFC6E8}n}
+ {\color{#FFC6E8}d}
+ {\color{#FFC6E8}?}
 $$
 
   <p align="center">
