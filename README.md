@@ -1,8 +1,6 @@
 
-<p align="center">
  
-<img src= https://i.pinimg.com/1200x/f8/a4/92/f8a492643a7bcda08148faea327a063b.jpg>
- 
+
 <p align="center"
  
 ︶⏝︶୨୧︶⏝︶
