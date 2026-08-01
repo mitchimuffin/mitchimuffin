@@ -27,19 +27,19 @@ $$
 <p align="left">
 <img src= https://files.catbox.moe/2v14ek.gif>
  <a 
-<p align="right">
+<p align="left">
 <img src=https://files.catbox.moe/ib5o66.gif>
   <a 
-<p align="right">
+<p align="left">
 <img src=https://files.catbox.moe/4n0qj2.jpg>
 <a
-<p align="left">
+<p align="right">
 <img src=https://files.catbox.moe/lh19fw.gif>
 <a
 <p align="right">
 <img src=https://files.catbox.moe/hovyvv.png>
 <a
-<p align="left">
+<p align="right">
 <img src=https://files.catbox.moe/s8911o.png>
 
 <p align="center"
