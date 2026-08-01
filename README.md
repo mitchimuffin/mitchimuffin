@@ -36,9 +36,6 @@ $$
 <p align="left">
 <img src=https://files.catbox.moe/lh19fw.gif>
 <a
-<p align="left">
-<img src=https://files.catbox.moe/q0pk32.png>
-<a
 <p align="right">
 <img src=https://files.catbox.moe/hovyvv.png>
 <a
