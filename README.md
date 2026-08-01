@@ -7,6 +7,18 @@
  {\color{#000000}.}
  {\color{#FFC6E8}btw<3.} 
 $$
+
+<p align="center">
+<img src=https://files.catbox.moe/zz41vx.gif>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/ia8ohp.gif>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/mlb3ex.gif>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/neqk89.gif>
  
 <p align="center">
 <img src= https://i.pinimg.com/736x/ac/75/69/ac75692a686e3949d5db676959b4d244.jpg>
