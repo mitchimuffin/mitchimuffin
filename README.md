@@ -33,13 +33,13 @@ $$
 <p align="right">
 <img src=https://files.catbox.moe/4n0qj2.jpg>
 <a
-<p align="center">
+<p align="left">
 <img src=https://files.catbox.moe/lh19fw.gif>
 <a
-<p align="center">
+<p align="left">
 <img src=https://files.catbox.moe/q0pk32.png>
 <a
-<p align="center">
+<p align="right">
 <img src=https://files.catbox.moe/hovyvv.png>
 
 <p align="center"
