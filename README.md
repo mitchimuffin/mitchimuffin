@@ -12,6 +12,27 @@ $$
 <img src= https://i.pinimg.com/736x/ac/75/69/ac75692a686e3949d5db676959b4d244.jpg>
 
 
+<p align="left">
+<img src= https://files.catbox.moe/2v14ek.gif>
+ <a 
+<p align="right">
+<img src=https://files.catbox.moe/ib5o66.gif>
+  <a 
+<p align="right">
+<img src=https://files.catbox.moe/4n0qj2.jpg>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/lh19fw.gif>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/q0pk32.png>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/hovyvv.png>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/pjy3aa.png>
+
 <p align="center"
  
 ︶⏝︶୨୧︶⏝︶
