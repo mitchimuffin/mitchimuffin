@@ -42,7 +42,7 @@ $$
 <p align="right">
 <img src=https://files.catbox.moe/hovyvv.png>
 <a
-<p align="center">
+<p align="left">
 <img src=https://files.catbox.moe/s8911o.png>
 
 <p align="center"
