@@ -29,9 +29,6 @@ $$
 <a
 <p align="center">
 <img src=https://files.catbox.moe/hovyvv.png>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/pjy3aa.png>
 
 <p align="center"
  
