@@ -1,4 +1,15 @@
 <p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=26&pause=1500&color=F8B4D9&center=true&vCenter=true&width=700&lines=welcome+!!;thnx+4+stopping+by%2C;yu%27r+officially+a+sprinkle+now%3C3" />
+</p>
+
+<p align="center">
+ ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=Sprinkles&color=f8b4d9&style=for-the-badge" />
+</p>
+
+
+<p align="center">
  $${\color{#FFC6E8}me} 
  {\color{#000000}.}
  {\color{#FFC6E8}nd}
@@ -47,7 +58,7 @@ $$
 
 <p align="center"
  
-︶⏝︶୨୧︶⏝︶
+ ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 <p align="center">
 
