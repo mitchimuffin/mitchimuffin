@@ -1,6 +1,12 @@
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=26&pause=1500&color=F8B4D9&center=true&vCenter=true&width=700&lines=welcome+!!;thnx+4+stopping+by%2C;yu%27r+officially+a+sprinkle+now%3C3" />
+  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=30&pause=2000&color=F8B4D9&center=true&vCenter=true&multiline=true&width=1000&height=220&lines=YUNAH!!%0AMINJU!!%0AMOKA!!%0AWONHEE!!%0AIROHA!!%0AILLIT+(%E2%89%A7%E2%96%BD%E2%89%A6)!!" />
 </p>
+
+<p align="center">
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+  
+<p align="center">
+<img src=https://files.catbox.moe/g3oj6u.png width=700 height=200>
 
 <p align="center">
  ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
