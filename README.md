@@ -1,5 +1,7 @@
+
+
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=30&pause=2000&color=F8B4D9&center=true&vCenter=true&multiline=true&width=1000&height=220&lines=YUNAH!!%0AMINJU!!%0AMOKA!!%0AWONHEE!!%0AIROHA!!%0AILLIT+(%E2%89%A7%E2%96%BD%E2%89%A6)!!" />
+  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=30&pause=2000&color=F8B4D9&center=true&vCenter=true&multiline=true&width=1000&height=80&lines=YUNAH!!%0AMINJU!!%0AMOKA!!%0AWONHEE!!%0AIROHA!!%0AILLIT+(%E2%89%A7%E2%96%BD%E2%89%A6)!!" />
 </p>
 
 <p align="center">
