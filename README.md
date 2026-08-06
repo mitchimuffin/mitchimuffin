@@ -98,4 +98,7 @@ $$
 
   
  <p align="center">
-  <a href="https://guns.lol/mitchimuffin">guns</a> 
+  <a href="https://guns.lol/mitchimuffin">guns</a>  ★
+  <a
+  <p align="center">
+  <a href="https://rentry.co/kifzt6zx">rentry</a>
