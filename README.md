@@ -11,9 +11,32 @@
 </p>
 
 
+<p align="center">
+<img src="https://files.catbox.moe/mvtl0u.gif">
+<a
+<p align="center">
+<img src= https://files.catbox.moe/6sffvw.gif>
+<a 
+<p align="center">
+<img src= https://files.catbox.moe/y9mwme.gif>
 
 <p align="center">
 <img src= https://files.catbox.moe/bgs4yx.jpg>
+
+<p align="center">
+<img src= https://files.catbox.moe/l0swtv.gif>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/ittptl.png>
+<a
+<p align="center">
+<img src= https://files.catbox.moe/rvbe4q.jpg>
+<a
+<p align="center">
+<img src= https://files.catbox.moe/kgvum0.png>
+<a
+<p align="center">
+<img src= https://files.catbox.moe/l0swtv.gif>
 
 
 
