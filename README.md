@@ -42,7 +42,7 @@
 
 <p align="center"
  
- ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+  ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
 <p align="center">
 
@@ -87,7 +87,8 @@ $$
   <p align="center">
   <a href="https://rentry.co/kifzt6zx">rentry</a>
     <p align="center">
-       ⋆.ೃ࿔*:･
+      <p align="center">
+    <img src=https://files.catbox.moe/qv55b7.png>
  <p align="center">
     ponytown's
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
