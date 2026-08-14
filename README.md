@@ -86,7 +86,7 @@ $$
   <p align="center">
   <a href="https://rentry.co/kifzt6zx">rentry</a>
     <p align="center">
-      
+       ⋆.ೃ࿔*:･
  <p align="center">
     ponytown's
-  <a href="https://rentry.co/kifzt6zx"> #1 loki fan & gwenpool </a>
+  <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
