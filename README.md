@@ -90,3 +90,18 @@ $$
  <p align="center">
     ponytown's
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
+
+  
+
+  <p align="center">
+ $${\color{#FFC3DC}me}
+ {\color{#000000}.}
+ {\color{#FFC3DC}nd}
+  {\color{#000000}.}
+ {\color{#FFC3DC}J} 
+ {\color{#000000}.}
+ {\color{#FFC3DC}btw<3}
+$$
+
+<p align="center">
+<img src=https://files.catbox.moe/6bx1za.jpeg>
