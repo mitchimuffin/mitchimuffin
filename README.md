@@ -42,7 +42,7 @@
 
 <p align="center"
  
- ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 <p align="center">
 
@@ -54,6 +54,7 @@
  {\color{#21C800}m}
  {\color{#21C800}y} 
  {\color{#000000}.}
+ {\color{#21C800}f}
  {\color{#21C800}r}
  {\color{#21C800}i}
  {\color{#21C800}e}
@@ -90,8 +91,8 @@ $$
  <p align="center">
     ponytown's
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
-
-  
+<p align="center">
+  ────୨ৎ────
 
   <p align="center">
  $${\color{#FFC3DC}me}
