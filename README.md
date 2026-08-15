@@ -88,17 +88,17 @@ $$
   <a href="https://rentry.co/kifzt6zx">rentry</a>
     
   <p align="center">
-  <img src=https://files.catbox.moe/si4xwg.png>
+  <img src=https://files.catbox.moe/0intqb.png height=150>
   <a
   <p align="center">
-  <img src=https://files.catbox.moe/5hajv3.png>
+  <img src=https://files.catbox.moe/hkathe.png height=150>
   
   <p align="center">
     <img src=https://files.catbox.moe/8u00le.gif>
  <p align="center">
   $${\color{#21C800}pony}
-  {\color{#FFC3DC}town}
+  {\color{#21C800}town}
   {\color{#21C800}'}
-  {\color{#FFC3DC}s}
+  {\color{#21C800}s}
  $$
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
