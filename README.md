@@ -90,7 +90,11 @@ $$
       <p align="center">
     <img src=https://files.catbox.moe/qv55b7.png>
  <p align="center">
-    ponytown's
+  $${\color{#21C800}pony}
+  {\color{#FFC3DC}town}
+  {\color{#21C800}'}
+  {\color{#FFC3DC}s}
+ $$
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
 <p align="center">
   ────୨ৎ────
