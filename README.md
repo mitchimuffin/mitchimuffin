@@ -88,10 +88,13 @@ $$
   <a href="https://rentry.co/kifzt6zx">rentry</a>
     
   <p align="center">
-  <img src=https://files.catbox.moe/8g9miw.jpg>
+  <img src=https://files.catbox.moe/si4xwg.png>
+  <a
+  <p align="center">
+  <img src=https://files.catbox.moe/5hajv3.png>
   
   <p align="center">
-    <img src=https://files.catbox.moe/qv55b7.png>
+    <img src=https://files.catbox.moe/0mzfmh.gif>
  <p align="center">
   $${\color{#21C800}pony}
   {\color{#FFC3DC}town}
@@ -99,27 +102,3 @@ $$
   {\color{#FFC3DC}s}
  $$
   <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
-<p align="center">
-  ────୨ৎ────
-
-  <p align="center">
- $${\color{#FFC3DC}me}
- {\color{#000000}.}
- {\color{#FFC3DC}nd}
-  {\color{#000000}.}
- {\color{#FFC3DC}J} 
- {\color{#000000}.}
- {\color{#FFC3DC}btw<3}
-$$
-
-<p align="center">
-  <img src=https://files.catbox.moe/9uac2v.gif>
-  <a
-<p  align="center">
- <img src= https://files.catbox.moe/402b5t.gif>
-    <a
- <p align="center">
-  <img src=https://files.catbox.moe/whi42d.gif>
-      
-<p align="center">
-<img src=https://files.catbox.moe/6bx1za.jpeg>
