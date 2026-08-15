@@ -101,4 +101,4 @@ $$
   {\color{#21C800}'}
   {\color{#21C800}s}
  $$
-  <a href="https://github.com/pt-hall-of-media"> #1 loki fan & gwenpool >:3 </a>
+  <a href="https://github.com/pt-hall-of-media"> gwenpool & loki's #1 fan >:3 </a>
