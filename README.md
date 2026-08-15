@@ -94,7 +94,7 @@ $$
   <img src=https://files.catbox.moe/5hajv3.png>
   
   <p align="center">
-    <img src=https://files.catbox.moe/0mzfmh.gif>
+    <img src=https://files.catbox.moe/8u00le.gif>
  <p align="center">
   $${\color{#21C800}pony}
   {\color{#FFC3DC}town}
