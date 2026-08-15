@@ -1,13 +1,13 @@
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=30&pause=2000&color=21C800&center=true&vCenter=true&multiline=true&width=1000&height=44&lines=i%0Alove%0Aloki%0Abtw" />
+  <img src="https://readme-typing-svg.demolab.com?font=Quicksand&size=30&pause=2000&color=FFC3DC&center=true&vCenter=true&multiline=true&width=1000&height=44&lines=i%0Alove%0Aloki%0Abtw" />
 </p>
 
   
 <p align="center">
  ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=Sprinkles&color=21C800&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=variants&color=21C800&style=for-the-badge" />
 </p>
 
 
