@@ -9,8 +9,7 @@
   <a
     <p align="center">
     <img src=https://files.catbox.moe/f770tu.png>
-    <p align="center">
-    <img src=https://files.catbox.moe/o4yexx.gif>
+    
     
 <p align="center">
 <img src=https://files.catbox.moe/nm28vn.jpg>
