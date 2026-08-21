@@ -39,7 +39,7 @@ X X X X X X X X X X X X X X X X
 <img src=https://files.catbox.moe/zpmoid.gif>
 
   <p align="center">
-  <img src=https://files.catbox.moe/d214hx.png>
+  <img src=https://files.catbox.moe/323wwa.png height=59 width=100>
   <a
 <p align="center">
   <img src=https://files.catbox.moe/tpsh5u.gif>
