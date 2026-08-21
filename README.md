@@ -46,3 +46,11 @@ X X X X X X X X X X X X X X X X
   <a
 <p align="center">
 <img src=https://files.catbox.moe/85z1nk.png height=59 width=100>
+
+<p align="center">
+  $${\color{#E80000}pony}
+  {\color{#E80000}town}
+  {\color{#E80000}'}
+  {\color{#E80000}s}
+ $$
+  <a href="https://github.com/pt-hall-of-media"> gwenpool & loki's #1 fan >:3 </a>
