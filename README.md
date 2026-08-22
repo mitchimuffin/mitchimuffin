@@ -14,7 +14,7 @@ X X X X X X X X X X X X X X X X
 <img src=https://files.catbox.moe/iqd2ge.gif>
 
 <p align="center">
-  <a href="mitchimuffin.carrd.co ">carrd</a> ★
+  <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
   <a
 <p align="center">
   <a href="https://mitchimuffiin.atabook.org">ata</a> ★
