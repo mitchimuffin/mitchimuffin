@@ -1,15 +1,15 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=D90000&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=7B53CA&style=for-the-badge" />
 </p>
 <p align="center">
-X X X X X X X X X X X X X X X X
+⊹ ࣪ ˖͙͘͡★
 
 <p align="center">
-<img src=https://files.catbox.moe/4ldw0x.webp>
+<img src=https://files.catbox.moe/1x9g2c.gif>
     
 <p align="center">
-<img src=https://files.catbox.moe/nm28vn.jpg>
+<img src=https://files.catbox.moe/th71t5.jpg width=700 height=300>
 <p align="center">
 <img src=https://files.catbox.moe/iqd2ge.gif>
 
@@ -35,24 +35,24 @@ X X X X X X X X X X X X X X X X
   <a href="https://rentry.co/kifzt6zx">rentry</a>
 
 <p align="center">
-<img src=https://files.catbox.moe/zpmoid.gif>
+<img src=https://files.catbox.moe/xcqxb4.gif>
 
   <p align="center">
-  <img src=https://files.catbox.moe/323wwa.png height=59 width=100>
+  <img src=https://files.catbox.moe/32twn4.png>
   <a
 <p align="center">
   <img src=https://files.catbox.moe/tpsh5u.gif>
   <a
   <p align="center">
-  <img src=https://files.catbox.moe/f788ry.png>
+  <img src=https://files.catbox.moe/1sefd7.png>
   <a
 <p align="center">
 <img src=https://files.catbox.moe/85z1nk.png height=59 width=100>
 
 <p align="center">
-  $${\color{#E80000}pony}
-  {\color{#E80000}town}
-  {\color{#E80000}'}
-  {\color{#E80000}s}
+  $${\color{#7B53CA}pony}
+  {\color{#7B53CA}town}
+  {\color{#7B53CA}'}
+  {\color{#7B53CA}s}
  $$
   <a href="https://github.com/pt-hall-of-media"> gwenpool & loki's #1 fan >:3 </a>
