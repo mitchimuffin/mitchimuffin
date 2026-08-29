@@ -1,10 +1,10 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=EA55FF&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=40B8EC&style=for-the-badge" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Caveat&size=32&pause=2000&color=40B8E&center=true&vCenter=true&width=600&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
+  <img src="https://readme-typing-svg.demolab.com?font=Permanent+Marker&size=30&pause=2000&color=EA55FF&center=true&vCenter=true&width=700&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
 </p>
 
     
@@ -38,7 +38,7 @@
 <img src=https://files.catbox.moe/xcqxb4.gif>
 
   <p align="center">
-  <img src=https://files.catbox.moe/2n135g.png height=59 width=100>
+  <img src=https://files.catbox.moe/wfaypy.png height=59 width=100>
   <a
 <p align="center">
   <img src=https://files.catbox.moe/30tnf7.png height=59 width=100>
