@@ -2,8 +2,10 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=EA55FF&style=for-the-badge" />
 </p>
+
 <p align="center">
-﹒⌗﹒🦈﹒౨ৎ˚₊‧
+  <img src="https://readme-typing-svg.demolab.com?font=Caveat&size=32&pause=2000&color=40B8E&center=true&vCenter=true&width=600&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
+</p>
 
     
 <p align="center">
@@ -36,16 +38,16 @@
 <img src=https://files.catbox.moe/xcqxb4.gif>
 
   <p align="center">
-  <img src=https://files.catbox.moe/ih1ika.png height=60 width=120>
+  <img src=https://files.catbox.moe/2n135g.png height=59 width=100>
   <a
 <p align="center">
-  <img src=https://files.catbox.moe/f3e6g4.png height=60 width=120>
+  <img src=https://files.catbox.moe/30tnf7.png height=59 width=100>
   <a
   <p align="center">
-  <img src=https://files.catbox.moe/q0q8lw.png height=60 width=120>
+  <img src=https://files.catbox.moe/3hycp9.png height=59 width=100>
   <a
 <p align="center">
-<img src=https://files.catbox.moe/6fxh6k.png height=60 width=120>
+<img src=https://files.catbox.moe/wrz829.png height=59 width=100>
 
 <p align="center">
   $${\color{#EA55FF}pony}
