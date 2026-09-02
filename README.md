@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=ꉂ❕&color=40B8EC&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=40B8EC&style=for-the-badge" />
 </p>
 
 <p align="center">
