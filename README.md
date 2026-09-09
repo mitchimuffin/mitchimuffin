@@ -55,4 +55,4 @@
   {\color{#EA55FF}'}
   {\color{#EA55FF}s}
  $$
-  <a href="https://github.com/pt-hall-of-media"> gwenpool & loki's #1 fan >:3 </a>
+  <a href="https://github.com/pt-hall-of-media"> gwenpool, jinx & loki's #1 fan >:3 </a>
