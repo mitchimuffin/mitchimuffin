@@ -1,13 +1,12 @@
-
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=❕&color=40B8EC&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=zaunites&color=40B8EC&style=for-the-badge" />
 </p>
 
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Permanent+Marker&size=30&pause=2000&color=EA55FF&center=true&vCenter=true&width=700&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
 </p>
 
-    
+
 <p align="center">
 <img src=https://files.catbox.moe/wpqj5t.jpg width=700 height=300>
 <p align="center">
@@ -52,6 +51,7 @@
 <p align="center">
 <img src=https://files.catbox.moe/wrz829.png height=59 width=100>
 
+
 <p align="center">
   $${\color{#EA55FF}pony}
   {\color{#EA55FF}town}
@@ -59,3 +59,6 @@
   {\color{#EA55FF}s}
  $$
   <a href="https://github.com/pt-hall-of-media"> gwenpool, jinx & loki's #1 fan >:3 </a>
+
+  <p align="center">
+  <img src=https://files.catbox.moe/ve16l8.gif>
