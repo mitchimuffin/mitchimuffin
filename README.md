@@ -2,7 +2,7 @@
   <img src=https://files.catbox.moe/qkru9h.png height=150 width=750>
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=zaunites&color=40B8EC&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=zaunites&color=005430&style=for-the-badge" />
 </p>
 
 <p align="center">
