@@ -1,19 +1,18 @@
-<p align="center">
-  <img src=https://files.catbox.moe/qkru9h.png height=150 width=750>
+
   
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=zaunites&color=005430&style=for-the-badge" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Permanent+Marker&size=30&pause=2000&color=EA55FF&center=true&vCenter=true&width=700&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=24&pause=1000&color=00880B&center=true&vCenter=true&repeat=true&width=350&lines=long+lives+the+king." />
 </p>
 
 
 <p align="center">
 <img src=https://files.catbox.moe/qrdcec.jpg width=700 height=300>
 <p align="center">
-<img src=https://files.catbox.moe/4bnhbh.gif>
+<img src=https://files.catbox.moe/wr8bnq.png height=100>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
