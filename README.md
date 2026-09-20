@@ -11,9 +11,9 @@
 
 
 <p align="center">
-<img src=https://files.catbox.moe/wpqj5t.jpg width=700 height=300>
+<img src=https://files.catbox.moe/qrdcec.jpg width=700 height=300>
 <p align="center">
-<img src=https://files.catbox.moe/iqd2ge.gif>
+<img src=https://files.catbox.moe/4bnhbh.gif>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
@@ -40,28 +40,25 @@
   <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
 
 <p align="center">
-<img src=https://files.catbox.moe/xcqxb4.gif>
+<img src=https://files.catbox.moe/63xp92.gif>
 
   <p align="center">
-  <img src=https://files.catbox.moe/wfaypy.png height=59 width=100>
+  <img src=https://files.catbox.moe/n24si6.jpg height=59 width=100>
   <a
 <p align="center">
-  <img src=https://files.catbox.moe/30tnf7.png height=59 width=100>
+  <img src=https://files.catbox.moe/im98gb.jpg height=59 width=100>
   <a
   <p align="center">
-  <img src=https://files.catbox.moe/3hycp9.png height=59 width=100>
+  <img src=https://files.catbox.moe/ficep6.jpg height=59 width=100>
   <a
 <p align="center">
-<img src=https://files.catbox.moe/wrz829.png height=59 width=100>
+<img src=https://files.catbox.moe/iwryvk.jpg height=59 width=100>
 
 
 <p align="center">
-  $${\color{#EA55FF}pony}
-  {\color{#EA55FF}town}
-  {\color{#EA55FF}'}
-  {\color{#EA55FF}s}
+  $${\color{#005430}pony}
+  {\color{#005430}town}
+  {\color{#005430}'}
+  {\color{#005430}s}
  $$
   <a href="https://github.com/pt-hall-of-media"> gwenpool, jinx & loki's #1 fan >:3 </a>
-
-  <p align="center">
-  <img src=https://files.catbox.moe/ve16l8.gif>
