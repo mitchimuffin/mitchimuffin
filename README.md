@@ -65,6 +65,6 @@
   <a href="https://github.com/pt-hall-of-media"> gwenpool, jinx & loki's #1 fan >:3 </a>
 
   <p align="center">
-  <img src=https://files.catbox.moe/4bfr3o.jpg>
+  <img src=https://files.catbox.moe/4bfr3o.jpg height=250>
   <p align="center">
   no, shame on YOU. if yu did a little effort in researching abt islam, myb yu wld've understood y i put boys in my dni list. yu'r srsly disgusting.
