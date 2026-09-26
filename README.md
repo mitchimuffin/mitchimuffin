@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=24&pause=1000&color=00880B&center=true&vCenter=true&repeat=true&width=350&lines=long+lives+the+king." />
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=24&pause=1000&color=00880B&center=true&vCenter=true&repeat=true&width=350&lines=the+impossible+isn't+saudi." />
 </p>
 <p align="center">المستحيل ليس سعودياً.</p>
 
