@@ -14,7 +14,7 @@
 
 
 <p align="center">
-<img src=https://files.catbox.moe/wpqj5t.jpg width=700 height=300>
+<img src=https://files.catbox.moe/46hmu2.png width=700 height=300>
 <p align="center">
 <img src=https://files.catbox.moe/iqd2ge.gif>
 
