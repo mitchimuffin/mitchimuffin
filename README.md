@@ -68,3 +68,9 @@
 
   <p align="center">
   <img src=https://files.catbox.moe/ve16l8.gif>
+
+  <p align="center">
+  <img src=https://files.catbox.moe/4bfr3o.jpg>
+    
+  <p align="center">
+  don't b like ths loser & research abt islam byi.
