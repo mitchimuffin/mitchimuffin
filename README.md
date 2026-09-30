@@ -1,4 +1,13 @@
 <p align="center">
+official
+  <a href="https://github.com/pt-hall-of-media"> gwenpool & jinx </a>
+<a
+<p align="center">
+of ponytown > . < !!
+  <p align="center">
+<a href="https://github.com/pt-hall-of-media"> + loki's #1 fan. 
+
+<p align="center">
 <img src=https://files.catbox.moe/wr8bnq.png height=45>
 
   
@@ -52,12 +61,3 @@
   <a
   <p align="center">
   <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
-
-
-
-  
-  <p align="center">
-  <img src=https://files.catbox.moe/4bfr3o.jpg height=200>
-    
-  <p align="center">
-  don't b like ths loser & research abt islam byi.
