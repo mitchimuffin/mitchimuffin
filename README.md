@@ -1,22 +1,33 @@
 <p align="center">
-<img src=https://files.catbox.moe/wr8bnq.png height=45
+<img src=https://files.catbox.moe/wr8bnq.png height=45>
 
-<p align="center">
-  <img src=https://files.catbox.moe/qkru9h.png height=150 width=750>
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=zaunites&color=40B8EC&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=F92F05&style=for-the-badge" />
 </p>
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Permanent+Marker&size=30&pause=2000&color=EA55FF&center=true&vCenter=true&width=700&lines=it's+jinx+now%2C;powder+fell+down+a+well." />
-</p>
-
+<img src=https://files.catbox.moe/sgumi8.jpg>
 
 <p align="center">
-<img src=https://files.catbox.moe/46hmu2.png width=700 height=300>
+  " real revenge is making something out of yourself. "
+
+  <p align="center">
+    ── gerard way.
 <p align="center">
-<img src=https://files.catbox.moe/iqd2ge.gif>
+<img src=https://files.catbox.moe/ws8ixr.png height=60>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/534qme.png height=60>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/krq9vg.png height=60>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/zdkjsc.png height=60>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/66c3ye.png height=60>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
@@ -42,35 +53,11 @@
   <p align="center">
   <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
 
-<p align="center">
-<img src=https://files.catbox.moe/xcqxb4.gif>
 
+
+  
   <p align="center">
-  <img src=https://files.catbox.moe/wfaypy.png height=59 width=100>
-  <a
-<p align="center">
-  <img src=https://files.catbox.moe/30tnf7.png height=59 width=100>
-  <a
-  <p align="center">
-  <img src=https://files.catbox.moe/3hycp9.png height=59 width=100>
-  <a
-<p align="center">
-<img src=https://files.catbox.moe/wrz829.png height=59 width=100>
-
-
-<p align="center">
-  $${\color{#EA55FF}pony}
-  {\color{#EA55FF}town}
-  {\color{#EA55FF}'}
-  {\color{#EA55FF}s}
- $$
-  <a href="https://github.com/pt-hall-of-media"> gwenpool, jinx & loki's #1 fan >:3 </a>
-
-  <p align="center">
-  <img src=https://files.catbox.moe/ve16l8.gif>
-
-  <p align="center">
-  <img src=https://files.catbox.moe/4bfr3o.jpg>
+  <img src=https://files.catbox.moe/4bfr3o.jpg height=200>
     
   <p align="center">
   don't b like ths loser & research abt islam byi.
