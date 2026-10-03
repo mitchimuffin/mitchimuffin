@@ -64,4 +64,7 @@ of ponytown > . < !!
   <a href="https://rentry.co/kifzt6zx">rentry</a> ★
   <a
   <p align="center">
-  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
+  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a> ★
+  <a
+  <p align="center">
+  <a href="https://archiveofourown.org/users/mitchimuffin/profile">ao3</a> 
