@@ -23,6 +23,10 @@ of ponytown > . < !!
 
   <p align="center">
     ── gerard way.
+
+<p align="center">
+<img src=https://files.catbox.moe/zpmoid.gif>
+    
 <p align="center">
 <img src=https://files.catbox.moe/ws8ixr.png height=60>
 <a
