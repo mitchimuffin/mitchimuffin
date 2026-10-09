@@ -1,7 +1,4 @@
 <p align="center">
-<img src=https://files.catbox.moe/px62rw.png height=155 width=250>
-
-<p align="center">
 official
   <a href="https://github.com/pt-hall-of-media"> gwenpool & jinx </a>
 <a
@@ -19,7 +16,7 @@ of ponytown > . < !!
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/sgumi8.jpg>
+<img src=https://files.catbox.moe/sgumi8.jpg height=250 width=850>
 
 <p align="center">
   " real revenge is making something out of yourself. "
@@ -44,6 +41,9 @@ of ponytown > . < !!
 <a
 <p align="center">
 <img src=https://files.catbox.moe/66c3ye.png height=60>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/px62rw.png height=60>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
