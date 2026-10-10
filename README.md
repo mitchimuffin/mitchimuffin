@@ -12,7 +12,7 @@ of ponytown > . < !!
 
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=F92F05&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=85001C&style=for-the-badge" />
 </p>
 
 <p align="center">
@@ -21,24 +21,6 @@ of ponytown > . < !!
 <p align="center">
 <img src=https://files.catbox.moe/zpmoid.gif>
     
-<p align="center">
-<img src=https://files.catbox.moe/ws8ixr.png height=60>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/534qme.png height=60>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/krq9vg.png height=60>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/zdkjsc.png height=60>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/66c3ye.png height=60>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/px62rw.png height=60>
-
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
   <a
