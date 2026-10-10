@@ -16,13 +16,7 @@ of ponytown > . < !!
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/sgumi8.jpg height=250 width=850>
-
-<p align="center">
-  " real revenge is making something out of yourself. "
-
-  <p align="center">
-    ── gerard way.
+<img src=https://files.catbox.moe/vxicej.jpeg height=250 width=850>
 
 <p align="center">
 <img src=https://files.catbox.moe/zpmoid.gif>
