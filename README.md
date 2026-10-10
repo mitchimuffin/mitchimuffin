@@ -12,7 +12,7 @@ of ponytown > . < !!
 
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=85001C&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=6F5643&style=for-the-badge" />
 </p>
 
 <p align="center">
@@ -20,6 +20,10 @@ of ponytown > . < !!
 
 <p align="center">
 <img src=https://files.catbox.moe/zpmoid.gif>
+
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Petit+Formal+Script&size=32&duration=3500&pause=1800&color=6F5643&center=true&vCenter=true&repeat=true&width=550&height=70&lines=what+will+your+verse+be%3F&fadeIn=1200&fadeOut=1200" alt="what will your verse be?" />
+</p>
     
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
