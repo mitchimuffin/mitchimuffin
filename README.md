@@ -16,7 +16,7 @@ of ponytown > . < !!
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/06cihl.jpeg height=250 width=850>
+<img src=https://files.catbox.moe/abrwf1.png height=250 width=850>
 
 <p align="center">
 <img src=https://files.catbox.moe/zpmoid.gif>
