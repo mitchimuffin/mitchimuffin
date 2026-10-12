@@ -8,10 +8,6 @@ of ponytown > . < !!
 <a href="https://github.com/pt-hall-of-media"> + loki's #1 fan. 
 
 <p align="center">
-<img src=https://files.catbox.moe/wr8bnq.png height=45>
-
-  
-<p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=7AB800&style=for-the-badge" />
 </p>
 
@@ -23,7 +19,8 @@ of ponytown > . < !!
   <img src="https://readme-typing-svg.demolab.com?font=Comic+Relief&weight=400&size=22&pause=2500&color=D9B44A&center=true&vCenter=true&width=750&lines=growing+up+is+not+the+problem%2C;forgetting+is." alt="growing up is not the problem, forgetting is." />
 </p>
 
-
+<p align="center">
+<img src=https://files.catbox.moe/4g01bi.gif>
     
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
