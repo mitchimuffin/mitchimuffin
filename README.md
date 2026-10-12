@@ -1,11 +1,18 @@
 <p align="center">
 official
-  <a href="https://github.com/pt-hall-of-media"> gwenpool & jinx </a>
+  <a href="https://github.com/pt-hall-of-media"> gwenpool </a>
 <a
+  <p align="center">
+  &
+<a href="https://github.com/pt-hall-of-media"> jinx </a>
+  <a
 <p align="center">
 of ponytown > . < !!
+    <p align="center">
+      +
+      <a
   <p align="center">
-<a href="https://github.com/pt-hall-of-media"> + loki's #1 fan. 
+<a href="https://github.com/pt-hall-of-media">  loki's #1 fan. 
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=7AB800&style=for-the-badge" />
