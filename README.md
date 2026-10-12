@@ -12,11 +12,18 @@ of ponytown > . < !!
 
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=733A2A&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=7AB800&style=for-the-badge" />
 </p>
 
 <p align="center">
 <img src=https://files.catbox.moe/7ejqtp.gif>
+
+
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Comic+Relief&weight=400&size=22&pause=2500&color=D9B44A&center=true&vCenter=true&width=750&lines=growing+up+is+not+the+problem%2C;forgetting+is." alt="growing up is not the problem, forgetting is." />
+</p>
+
+
     
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
