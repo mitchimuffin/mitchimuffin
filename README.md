@@ -15,7 +15,7 @@ of ponytown > . < !!
 <a href="https://github.com/pt-hall-of-media">  loki's #1 fan. 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=7AB800&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=DA0700&style=for-the-badge" />
 </p>
 
 <p align="center">
