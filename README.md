@@ -24,11 +24,6 @@
  <p align="center">
   <a href="https://mitchimuffin.straw.page">straw</a> ★
   <a 
-  
-
-<p align="center">
-  <a href="https://en.pronouns.page/@mitchimuffin">prns</a> ★ 
-  <a  
  <p align="center">
   <a href="https://guns.lol/mitchimuffin">guns</a>  ★
   <a
