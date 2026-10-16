@@ -4,12 +4,9 @@
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/7ejqtp.gif>
+<img src=https://files.catbox.moe/7ejqtp.gif width=500>
 
 
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Comic+Relief&weight=400&size=22&pause=2500&color=D9B44A&center=true&vCenter=true&width=750&lines=growing+up+is+not+the+problem%2C;forgetting+is." alt="growing up is not the problem, forgetting is." />
-</p>
 
 <p align="center">
 <img src=https://files.catbox.moe/4g01bi.gif>
