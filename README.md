@@ -6,10 +6,7 @@
 <p align="center">
 <img src=https://files.catbox.moe/nu8axn.gif>
 
-
-
-
-    
+   
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
   <a
