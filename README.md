@@ -8,8 +8,7 @@
 
 
 
-<p align="center">
-<img src=https://files.catbox.moe/4g01bi.gif>
+
     
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
