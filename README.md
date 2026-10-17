@@ -1,10 +1,10 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=DA0700&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=E5BE33&style=for-the-badge" />
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/7ejqtp.gif width=500>
+<img src=https://files.catbox.moe/nu8axn.gif>
 
 
 
