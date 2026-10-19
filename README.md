@@ -8,10 +8,8 @@
 <p align="center">
 <img src=https://files.catbox.moe/lodvy6.jpg height=300 width=650>
  <p align="center">
-   <img src=https://files.catbox.moe/92py7w.gif>
-   <a
-  <p align="center">
-    <img src=https://files.catbox.moe/kqu8tv.gif>
+   <img src=https://files.catbox.moe/209wjs.gif>
+  
     
 <p align="center">
 𐔌   .  ⋮  rᥱmᥱmᑲᥱr 𝗍һᥱ mᥲgіᥴ іᥒsіძᥱ ᥡ᥆ᥙ .ᐟ  ֹ 𝄞⨾𓍢ִ໋   ₊ ꒱
