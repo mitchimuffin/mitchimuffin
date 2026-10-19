@@ -1,9 +1,17 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=000000&style=for-the-badge"/>
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=9AE4E2&style=for-the-badge"/>
 </p>
 
 <p align="center">
-<img src=https://files.catbox.moe/kng3pf.jpg height=300 width=650>
+<img src=https://files.catbox.moe/s3d1kr.gif>
+
+<p align="center">
+<img src=https://files.catbox.moe/lodvy6.jpg height=300 width=650>
+  <p align="center">
+    <img src=https://files.catbox.moe/kqu8tv.gif>
+    
+<p align="center">
+𐔌   .  ⋮  rᥱmᥱmᑲᥱr 𝗍һᥱ mᥲgіᥴ іᥒsіძᥱ ᥡ᥆ᥙ .ᐟ  ֹ 𝄞⨾𓍢ִ໋   ₊ ꒱
 
    
 <p align="center">
