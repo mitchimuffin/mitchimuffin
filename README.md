@@ -14,7 +14,7 @@
    <img src=https://files.catbox.moe/209wjs.gif>
 
 <p align="center">
-𐔌   .  ⋮  Uwawa~ .ᐟ ☆ Isn't that just wondahoi .ᐟ  ֹ 𝄞⨾𓍢ִ໋   ₊ ꒱
+𐔌   .  ⋮  Wonderhoy .ᐟ ☆   ֹ 𝄞   ₊ ꒱
 
    
 <p align="center">
@@ -33,10 +33,7 @@
   <a href="https://rentry.co/kifzt6zx">rentry</a> ★
   <a
   <p align="center">
-  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a> ★
-  <a
-  <p align="center">
-  <a href="https://archiveofourown.org/users/mitchimuffin/profile">ao3</a> 
+  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
 
-  <p align="center">
-  <img src=https://files.catbox.moe/a6tmka.png height=200 width=1000
+ <p align="center">
+  <img src=https://files.catbox.moe/a6tmka.png height=200 width=1000>
