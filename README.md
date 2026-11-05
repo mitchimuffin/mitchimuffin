@@ -7,9 +7,34 @@
 
 <p align="center">
 <img src=https://files.catbox.moe/wha5mu.gif>
+  
+<p align="center">
+<img src=https://files.catbox.moe/bk0gz8.png height=50 width=100>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/zwdv8n.png height=50 width=100>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/yzcwhe.png height=50 width=100>
+<a
+<p align="center">
+<img src=https://files.catbox.moe/a22cyh.png height=50 width=100>
+<a
 
 <p align="center">
 <img src=https://files.catbox.moe/rrfjwx.jpg height=300 width=650>
+  <p align="center">
+    <img src=https://files.catbox.moe/mgt8nn.png height=50 width=100>
+    <a
+      <p align="center">
+      <img src=https://files.catbox.moe/hbjn2y.png height=50 width=100>
+        <a
+        <p align="center">
+      <img src=https://files.catbox.moe/5r8vbr.png height=50 width=100>
+        <a
+        <p align="center">
+      <img src=https://files.catbox.moe/mmf9xx.png height=50 width=100>
+      
  <p align="center">
    <img src=https://files.catbox.moe/209wjs.gif>
 
