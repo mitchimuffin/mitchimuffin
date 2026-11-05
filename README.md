@@ -4,7 +4,8 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=9AE4E2&style=for-the-badge"/>
 </p>
-
+<p align="center">
+  <img src=https://files.catbox.moe/io9kg7.gif>
 <p align="center">
 <img src=https://files.catbox.moe/wha5mu.gif>
   
