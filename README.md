@@ -1,4 +1,7 @@
 <p align="center">
+  <img src=https://files.catbox.moe/xhksrl.png height=200 width=1000
+    
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=9AE4E2&style=for-the-badge"/>
 </p>
 
@@ -6,12 +9,12 @@
 <img src=https://files.catbox.moe/s3d1kr.gif>
 
 <p align="center">
-<img src=https://files.catbox.moe/lodvy6.jpg height=300 width=650>
+<img src=https://files.catbox.moe/rrfjwx.jpg height=300 width=650>
  <p align="center">
    <img src=https://files.catbox.moe/209wjs.gif>
 
 <p align="center">
-𐔌   .  ⋮  rᥱmᥱmᑲᥱr 𝗍һᥱ mᥲgіᥴ іᥒsіძᥱ ᥡ᥆ᥙ .ᐟ  ֹ 𝄞⨾𓍢ִ໋   ₊ ꒱
+𐔌   .  ⋮  Uwawa~ .ᐟ ☆ Isn't that just wondahoi .ᐟ  ֹ 𝄞⨾𓍢ִ໋   ₊ ꒱
 
    
 <p align="center">
@@ -34,3 +37,6 @@
   <a
   <p align="center">
   <a href="https://archiveofourown.org/users/mitchimuffin/profile">ao3</a> 
+
+  <p align="center">
+  <img src=https://files.catbox.moe/a6tmka.png height=200 width=1000
