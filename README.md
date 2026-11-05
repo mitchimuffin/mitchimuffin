@@ -39,7 +39,7 @@
    <img src=https://files.catbox.moe/209wjs.gif>
 
 <p align="center">
-𐔌   .  ⋮  Wonderhoy .ᐟ ☆   ֹ 𝄞   ₊ ꒱
+<img src=https://files.catbox.moe/wha5mu.gif>
 
    
 <p align="center">
