@@ -59,7 +59,11 @@
   <a href="https://rentry.co/kifzt6zx">rentry</a> ★
   <a
   <p align="center">
-  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a>
+  <a href="https://www.tumblr.com/mitchimuffin">tmblr</a> ★
+ <a
+  <p align="center">
+  <a href="https://passportdex.com/izzyethany?via=izzyethany">passportdex</a>
+ 
 
  <p align="center">
   <img src=https://files.catbox.moe/a6tmka.png height=200 width=1000>
