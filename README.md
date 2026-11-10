@@ -36,12 +36,13 @@
         <p align="center">
       <img src=https://files.catbox.moe/mmf9xx.png height=50 width=100>
       
- <p align="center">
-   <img src=https://files.catbox.moe/209wjs.gif>
 
 <p align="center">
 <img src=https://files.catbox.moe/wha5mu.gif>
 
+<p align="center">
+   <img src=https://files.catbox.moe/209wjs.gif>
+   
    
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
