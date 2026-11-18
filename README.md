@@ -68,3 +68,35 @@
 
  <p align="center">
   <img src=https://files.catbox.moe/a6tmka.png height=200 width=1000>
+
+
+<details>
+<summary align="center">ㅤㅤㅤㅤㅤ important</summary>
+
+<div align="center">
+
+<p align="center">
+<img src=https://files.catbox.moe/4bfr3o.jpg height=200 width=300>
+
+<p align="center">
+ok, im assuming yk nothing abt islam. 
+i forgive yu for calling me a misandrist & shaming me, 
+yu probably didn't understand wut i meant. 
+
+but please, next time yu check my pages, make sure 
+yu at least respect me & my opinions/beliefs. 
+
+if yu don't like me, simply just skip my pages. 
+
+because when yu wrote that, it made yu look mean & rude, which is possibly
+not how yu wanted to be seen as, of course nobody wants that.
+
+so what i wanna say is, before interacting with me, do a little research 
+abt islam, it won't hurt to try and understand each other for a better 
+outcome, right?
+
+ty<3. 
+
+</div>
+</details>
+
