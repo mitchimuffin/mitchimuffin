@@ -79,21 +79,23 @@
 <img src=https://files.catbox.moe/4bfr3o.jpg height=200 width=300>
 
 <p align="center">
-ok, im assuming yk nothing abt islam. 
-i forgive yu for calling me a misandrist & shaming me, 
+ok , im assuming yk nothing abt islam. 
+i forgive yu for calling me a misandrist & shaming me , 
 yu probably didn't understand wut i meant. 
 
-but please, next time yu check my pages, make sure 
-yu at least respect me & my opinions/beliefs. 
+but please , next time yu check my pages , make sure 
+yu at least respect me & my opinions / beliefs. 
 
-if yu don't like me, simply just skip my pages. 
+if yu don't like me , simply just skip my pages. It's easy. 
 
-because when yu wrote that, it made yu look mean & rude, which is possibly
-not how yu wanted to be seen as, of course nobody wants that.
+because when yu wrote that , it made yu look mean & rude , which is possibly
+not how yu wanted to be seen as , of course nobody wants that.
 
-so what i wanna say is, before interacting with me, do a little research 
-abt islam, it won't hurt to try and understand each other for a better 
-outcome, right?
+so what i wanna say is , before interacting with me , do a little research 
+abt islam , it won't hurt to try and understand each other for a better 
+outcome , right?
+
+also , if yu hve smthn to say abt me pls talk to me directly , not hiding behind anon. 
 
 ty<3. 
 
