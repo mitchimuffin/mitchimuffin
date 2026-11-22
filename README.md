@@ -11,9 +11,7 @@
 <a
 <p align="left">
 <img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
-<a
- <p align="right">
-    <img src=https://files.catbox.moe/3pywts.png height=100 width=500>
+
     
 <p align="center">
     <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
@@ -22,9 +20,7 @@
   <p align="center">
     <img src=https://files.catbox.moe/bysv1b.png height=25 width=650>
     
-   <p align="left">
-    <img src=https://files.catbox.moe/w4d0j8.png height=100 width=500>
-  <a 
+
   <p align="right">
   <img src=https://files.catbox.moe/qzmv3w.png height=100 width=100>
   <a
