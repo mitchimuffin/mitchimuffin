@@ -13,7 +13,7 @@
 <img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
 
 <p align="center">
-<img src=https://files.catbox.moe/78k2mr.png height=300 width=650>
+<img src=https://files.catbox.moe/vmyqz2.png height=300 width=650>
   
   <p align="right">
     <img src=https://files.catbox.moe/c147vg.png height=100 width=100>
