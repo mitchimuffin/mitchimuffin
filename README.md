@@ -11,17 +11,20 @@
 <a
 <p align="left">
 <img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
-
+<p align="center">
+    <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
 <p align="center">
 <img src=https://files.catbox.moe/vmyqz2.png height=300 width=650>
-  
+  <p align="center">
+    <img src=https://files.catbox.moe/bysv1b.png height=25 width=650>
   <p align="right">
     <img src=https://files.catbox.moe/c147vg.png height=100 width=100>
     <a
       <p align="right">
       <img src=https://files.catbox.moe/zxds0x.png height=100 width=100>
         
-      
+  <p align="center">
+  <img src=https://files.catbox.moe/3zij04.gif>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
