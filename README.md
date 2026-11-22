@@ -38,7 +38,7 @@
       <img src=https://files.catbox.moe/70dtds.png height=50 width=100>
       
 <p align="center">
-<img src=https://files.catbox.moe/31a75j.gif>
+<img src=https://files.catbox.moe/og3yl5.gif>
     
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
