@@ -1,4 +1,7 @@
 <p align="center">
+  <img src=https://files.catbox.moe/8ugrgp.png height=200 width=1000>
+  
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=000000&style=for-the-badge"/>
 </p>
 
@@ -59,7 +62,8 @@
  
 
  
-
+<p align="center">
+<img src=https://files.catbox.moe/vcj9ea.png height=200 width=1000>
 
 <details>
 <summary align="center">ㅤㅤㅤㅤㅤ important</summary>
