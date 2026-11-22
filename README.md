@@ -26,10 +26,10 @@
     <img src=https://files.catbox.moe/w4d0j8.png height=100 width=500>
   <a 
   <p align="right">
-  <img src=https://files.catbox.moe/i0tw1i.jpg height=100 width=100>
+  <img src=https://files.catbox.moe/qzmv3w.png height=100 width=100>
   <a
   <p align="right">
-  <img src=https://files.catbox.moe/1y7sy3.jpg height=100 width=100>
+  <img src=https://files.catbox.moe/s6pbjt.png height=100 width=100>
 
       
 
