@@ -3,8 +3,7 @@
 </p>
 
   <p align="center">
-    <img src="
-      https://files.catbox.moe/78k2mr.png>
+    <img src=https://files.catbox.moe/1ju9d9.gif>
 
       
 <p align="center">
@@ -35,7 +34,7 @@
       <img src=https://files.catbox.moe/70dtds.png height=50 width=100>
       
 <p align="center">
-<img src=https://files.catbox.moe/78k2mr.png>
+<img src=https://files.catbox.moe/1ju9d9.gif>
 
 <p align="center">
    <img src=https://files.catbox.moe/209wjs.gif>
