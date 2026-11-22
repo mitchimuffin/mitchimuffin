@@ -11,7 +11,7 @@
 <a
 <p align="left">
 <img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
-<a
+
 <p align="right">
 <img src=https://files.catbox.moe/a22kjj.jpeg width=350 height=100
     
