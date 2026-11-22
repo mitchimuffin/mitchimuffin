@@ -11,9 +11,6 @@
 <a
 <p align="left">
 <img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
-
-<p align="right">
-<img src=https://files.catbox.moe/a22kjj.jpeg width=350 height=100
     
 <p align="center">
     <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
