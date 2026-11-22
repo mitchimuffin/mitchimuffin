@@ -1,8 +1,8 @@
 <p align="center">
-  <img src=https://files.catbox.moe/8ugrgp.png height=200 width=1000>
+  <img src=https://files.catbox.moe/mkq3yx.png height=200 width=1000>
   
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=000000&style=for-the-badge"/>
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=FFD2E6&style=for-the-badge"/>
 </p>
 
     
@@ -10,32 +10,22 @@
     <img src=https://files.catbox.moe/1ju9d9.gif>
 
       
-<p align="center">
-<img src=https://files.catbox.moe/ghxu86.png height=50 width=100>
+<p align="left">
+<img src=https://files.catbox.moe/8xn05c.png height=100 width=100>
 <a
-<p align="center">
-<img src=https://files.catbox.moe/x902ya.png height=50 width=100>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/plr1gz.png height=50 width=100>
-<a
-<p align="center">
-<img src=https://files.catbox.moe/aa051t.png height=50 width=100>
-<a
+<p align="left">
+<img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
+
 
 <p align="center">
 <img src=https://files.catbox.moe/78k2mr.png height=300 width=650>
-  <p align="center">
-    <img src=https://files.catbox.moe/zdv6qy.png height=50 width=100>
+  
+  <p align="right">
+    <img src=https://files.catbox.moe/c147vg.png height=100 width=100>
     <a
-      <p align="center">
-      <img src=https://files.catbox.moe/8yyyrg.png height=50 width=100>
-        <a
-        <p align="center">
-      <img src=https://files.catbox.moe/tsihxz.png height=50 width=100>
-        <a
-        <p align="center">
-      <img src=https://files.catbox.moe/70dtds.png height=50 width=100>
+      <p align="right">
+      <img src=https://files.catbox.moe/zxds0x.png height=100 width=100>
+        
       
 <p align="center">
 <img src=https://files.catbox.moe/og3yl5.gif>
@@ -64,7 +54,7 @@
 
  
 <p align="center">
-<img src=https://files.catbox.moe/vcj9ea.png height=200 width=1000>
+<img src=https://files.catbox.moe/a2tmns.png height=200 width=1000>
 
 <details>
 <summary align="center">ㅤㅤㅤㅤㅤ 🦇</summary>
