@@ -3,8 +3,11 @@
 </p>
 
 <p align="center">
-  <img src=https://files.catbox.moe/hwlnk2.gif>
-  
+  <img src=https://files.catbox.moe/0t8v3i.gif>
+  <a
+    <p align="center">
+    <img src=https://files.catbox.moe/lwc36a.gif>
+    
   <p align="center">
     <img src=https://files.catbox.moe/1ju9d9.gif>
 
@@ -40,9 +43,11 @@
 <img src=https://files.catbox.moe/1ju9d9.gif>
 
 <p align="center">
-   <img src=https://files.catbox.moe/209wjs.gif>
-   
-   
+  <img src=https://files.catbox.moe/0t8v3i.gif>
+  <a
+    <p align="center">
+    <img src=https://files.catbox.moe/lwc36a.gif>
+    
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
   <a
