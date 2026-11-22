@@ -21,11 +21,15 @@
 <img src=https://files.catbox.moe/vmyqz2.png height=300 width=650>
   <p align="center">
     <img src=https://files.catbox.moe/bysv1b.png height=25 width=650>
-    <p align="left">
+    
+   <p align="left">
     <img src=https://files.catbox.moe/w4d0j8.png height=100 width=500>
-      <a
-  <img align="right" src="./images/pic1.jpg" width="100" height="100">
-<img align="right" src="./images/pic2.jpg" width="100" height="100">
+  <a 
+  <p align="right">
+  <img src=https://files.catbox.moe/i0tw1i.jpg>
+  <a
+  <p align="right">
+  <img src=https://files.catbox.moe/1y7sy3.jpg>
 
       
 
