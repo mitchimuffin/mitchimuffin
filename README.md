@@ -7,10 +7,10 @@
 
 
 <p align="left">
-<img src=https://files.catbox.moe/8xn05c.png height=100 width=100>
+<img src=https://files.catbox.moe/8xn05c.png height=200 width=200>
 <a
 <p align="left">
-<img src=https://files.catbox.moe/dggeyh.png height=100 width=100>
+<img src=https://files.catbox.moe/dggeyh.png height=200 width=200>
     
 <p align="center">
     <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
@@ -21,10 +21,10 @@
     
 
   <p align="right">
-  <img src=https://files.catbox.moe/qzmv3w.png height=100 width=100>
+  <img src=https://files.catbox.moe/qzmv3w.png height=200 width=200>
   <a
   <p align="right">
-  <img src=https://files.catbox.moe/s6pbjt.png height=100 width=100>
+  <img src=https://files.catbox.moe/s6pbjt.png height=200 width=200>
 
       
 
