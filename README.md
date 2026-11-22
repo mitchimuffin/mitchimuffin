@@ -1,7 +1,12 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=000000&style=for-the-badge"/>
 </p>
-  
+
+  <p align="center">
+    <img src="
+      https://files.catbox.moe/78k2mr.png>
+
+      
 <p align="center">
 <img src=https://files.catbox.moe/ghxu86.png height=50 width=100>
 <a
@@ -29,7 +34,8 @@
         <p align="center">
       <img src=https://files.catbox.moe/70dtds.png height=50 width=100>
       
-
+<p align="center">
+<img src=https://files.catbox.moe/78k2mr.png>
 
 <p align="center">
    <img src=https://files.catbox.moe/209wjs.gif>
