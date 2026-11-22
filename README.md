@@ -6,14 +6,14 @@
 </p>
 
 
-<p align="left">
-<img src=https://files.catbox.moe/8xn05c.png height=200 width=200>
+<p align="center">
+<img src=https://files.catbox.moe/8xn05c.png height=150 width=150>
 <a
     <p align="center">
-    <img src=https://files.catbox.moe/5oociw.jpg height=200 width=200>
+    <img src=https://files.catbox.moe/ax81o6.jpg height=150 width=150>
   <a
-<p align="right">
-<img src=https://files.catbox.moe/dggeyh.png height=200 width=200>
+<p align="center">
+<img src=https://files.catbox.moe/dggeyh.png height=150 width=150>
     
 <p align="center">
     <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
@@ -23,14 +23,14 @@
     <img src=https://files.catbox.moe/bysv1b.png height=25 width=650>
     
 
-  <p align="left">
-  <img src=https://files.catbox.moe/qzmv3w.png height=200 width=200>
+  <p align="center">
+  <img src=https://files.catbox.moe/qzmv3w.png height=150 width=150>
   <a
     <p align="center">
-    <img src=https://files.catbox.moe/ax81o6.jpg width=200 height=200>
+    <img src=https://files.catbox.moe/5oociw.jpg width=150 height=150>
     <a
-  <p align="right">
-  <img src=https://files.catbox.moe/s6pbjt.png height=200 width=200>
+  <p align="center">
+  <img src=https://files.catbox.moe/s6pbjt.png height=150 width=150>
 
       
 
