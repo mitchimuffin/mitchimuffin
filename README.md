@@ -24,11 +24,9 @@
     <p align="left">
     <img src=https://files.catbox.moe/w4d0j8.png height=100 width=500>
       <a
-  <p align="right">
-    <img src=https://files.catbox.moe/c147vg.png height=100 width=100>
-    <a
-      <p align="right">
-      <img src=https://files.catbox.moe/zxds0x.png height=100 width=100>
+  <img align="right" src="./images/pic1.jpg" width="100" height="100">
+<img align="right" src="./images/pic2.jpg" width="100" height="100">
+
       
 
 <p align="center">
