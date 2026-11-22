@@ -21,7 +21,7 @@
 <a
 
 <p align="center">
-<img src=https://files.catbox.moe/78k2mr.png height=300 width=650>
+<img src=https://files.catbox.moe/mv7kdr.png height=300 width=650>
   <p align="center">
     <img src=https://files.catbox.moe/zdv6qy.png height=50 width=100>
     <a
