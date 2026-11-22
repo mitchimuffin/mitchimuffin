@@ -2,6 +2,9 @@
   <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=000000&style=for-the-badge"/>
 </p>
 
+<p align="center">
+  <img src=https://files.catbox.moe/hwlnk2.gif>
+  
   <p align="center">
     <img src=https://files.catbox.moe/1ju9d9.gif>
 
