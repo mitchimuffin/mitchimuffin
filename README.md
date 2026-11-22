@@ -24,7 +24,7 @@
       <img src=https://files.catbox.moe/zxds0x.png height=100 width=100>
         
   <p align="center">
-  <img src=https://files.catbox.moe/3zij04.gif>
+  <img src=https://files.catbox.moe/3zij04.gif height=25>
 
 <p align="center">
   <a href="https://mitchimuffin.carrd.co ">carrd</a> ★
