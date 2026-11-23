@@ -1,36 +1,34 @@
+
 <p align="center">
-  <img src=https://files.catbox.moe/mkq3yx.png height=200 width=1000>
-  
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=FFD2E6&style=for-the-badge"/>
+  <img src="https://komarev.com/ghpvc/?username=mitchimuffin&label=bethlings&color=D30000&style=for-the-badge"/>
 </p>
 
 
 <p align="center">
-<img src=https://files.catbox.moe/8xn05c.png height=150 width=150>
+<img src=https://files.catbox.moe/t5v528.png height=100 width=150>
 <a
-    <p align="center">
-    <img src=https://files.catbox.moe/ax81o6.jpg height=150 width=150>
+   <p align="center">
+    <img src=https://files.catbox.moe/nu3rpv.png height=100 width=150>
   <a
 <p align="center">
-<img src=https://files.catbox.moe/dggeyh.png height=150 width=150>
+<img src=https://files.catbox.moe/yts05x.png height=100 width=150>
     
 <p align="center">
-    <img src=https://files.catbox.moe/1b5yci.png height=25 width=650>
+    <img src=https://files.catbox.moe/gg4ig3.jpg height=50 width=650>
 <p align="center">
-<img src=https://files.catbox.moe/vmyqz2.png height=300 width=650>
+<img src=https://files.catbox.moe/5aqx1a.jpg height=300 width=650>
   <p align="center">
-    <img src=https://files.catbox.moe/bysv1b.png height=25 width=650>
+    <img src=https://files.catbox.moe/gg4ig3.jpg height=50 width=650>
     
 
   <p align="center">
-  <img src=https://files.catbox.moe/qzmv3w.png height=150 width=150>
+  <img src=https://files.catbox.moe/sjqeuj.png height=100 width=150>
   <a
     <p align="center">
-    <img src=https://files.catbox.moe/5oociw.jpg width=150 height=150>
+    <img src=https://files.catbox.moe/1wpvzj.png width=150 height=100>
     <a
   <p align="center">
-  <img src=https://files.catbox.moe/s6pbjt.png height=150 width=150>
+  <img src=https://files.catbox.moe/2y4n3y.png height=100 width=150>
 
       
 
@@ -57,45 +55,177 @@
  
 
  
-<p align="center">
-<img src=https://files.catbox.moe/a2tmns.png height=200 width=1000>
+
 
 <details>
-<summary align="center">ㅤㅤㅤㅤㅤ 🦇</summary>
+<summary align="center">ㅤㅤㅤㅤㅤ 🌎</summary>
 
 <div align="center">
-It's you and me in this world, 내게로 다시 와, tie me
-날 구원할 거라면, just come kiss me and bite me (oh, babe)
-혈관 속 memory, 널 찾던 내 세포는 scream
-이젠 알아, what I had to be? 운명은 우릴 다시 발견했지
-Got me bad, bad, bad, 나를 괴롭힌 뭔갈 찾아 헤매는 dreams
-떠올랐어, when you next to me, 잠시 잊혀진 나의 이름이
-This blood's pumpin' crazy
-(Oh, my, oh, my God)
-'Cause I know you'll save me
-Come here and get some (some), 남겨줘 on my neck
-네 거란 증거 (거), just come over and bite me
-Come here and get some (some), 널 찬미할 sidekick
-그게 내 숙명 (명), just come over and bite me
-It's you and me in this world, 내게로 다시 와, tie me
-날 구원할 거라면, just come kiss me and bite me (oh, babe)
-It's you and me in this world, 이 어둠 속에서 light me (ooh, ooh-ooh)
-기회를 줄 거라면, just come kiss me and bite me, yeah-eh-eh
-너에게 바칠게 너를 지킬 brave heart
-과거에 버린 내 어리석은 오만
-Come to me, make it right
-다시 연결해 줘 날, 삼켜 날, yeah-eh
-This blood's pumpin' crazy
-(Oh, my, oh, my God)
-'Cause I know you'll save me
-Come here and get some (some), 남겨줘 on my neck
-네 거란 증거 (거), just come over and bite me
-Come here and get some (some), 널 찬미할 sidekick
-그게 내 숙명 (명), just come over and bite me
-It's you and me in this world, 내게로 다시 와, tie me
-날 구원할 거라면, just come kiss me and bite me (oh, babe)
-It's you and me in this world, 이 어둠 속에서 light me (ooh, ooh-ooh)
-기회를 줄 거라면, just come kiss me and bite me, yeah-eh-eh
+Crash, smash, rock, mash up
+Crash, smash, rock, mash up
+
+Ooh, take what you want
+Ooh, take what you want
+
+돈, 멋, 명예, love and what?
+don, meot, myeong-ye, love and what?
+
+Ooh, take what you want
+Ooh, take what you want
+
+
+Life's too fast
+Life's too fast
+
+뭘 더 참아? 이젠 됐어 (what you want?)
+mwol deo chama? ijen dwaesseo (what you want?)
+
+I want to see the whole world
+I want to see the whole world
+
+도장 찍어, 나의 passport (what you want?)
+dojang jjigeo, naui passport (what you want?)
+
+
+Well, 이마에 피도 안 말랐을 때 계획한 행보
+Well, ima-e pido an mallasseul ttae gyehoekan haengbo
+
+(What you want?)
+(What you want?)
+
+바라던 걸 찾아 집을 떠나, what we came for
+baradeon geol chaja jibeul tteona, what we came for
+
+
+Crash, smash, rock, mash up
+Crash, smash, rock, mash up
+
+Ooh, take what you want
+Ooh, take what you want
+
+돈, 멋, 명예, love and what?
+don, meot, myeong-ye, love and what?
+
+Ooh, take what you want
+Ooh, take what you want
+
+
+적당히론 배가 차지 않아 (않아)
+jeokdanghiron baega chaji ana (ana)
+
+들이켜, yuh, 마치 하마 (하마)
+deurikyeo, yuh, machi hama (hama)
+
+Smelling like a teen, 마치 Nirvana (Nirvana)
+Smelling like a teen, machi Nirvana (Nirvana)
+
+소리쳐, yuh, 'cause we wanna
+sorichyeo, yuh, 'cause we wanna
+
+
+That's what we all looking for
+That's what we all looking for
+
+That's what we all looking for
+That's what we all looking for
+
+That's what we all looking for
+That's what we all looking for
+
+That's what we all looking (one, two, three) for
+That's what we all looking (one, two, three) for
+
+
+난 걍 돌아갈 바엔 바로 넘어버려 담장
+nan gyang doragal ba-en baro neomeobeoryeo damjang
+
+(What you want?)
+(What you want?)
+
+난 원해, 다시 뛰게 할 무언갈, 나의 심장
+nan wonhae, dasi ttwige hal mueon-gal, naui simjang
+
+(What you want?)
+(What you want?)
+
+
+야밤, 새벽 배송 같은 fresh song
+yabam, saebyeok baesong gateun fresh song
+
+I need that (what you want?)
+I need that (what you want?)
+
+I want the whole world to wake up and realize
+I want the whole world to wake up and realize
+
+
+Some people want this, some people want that
+Some people want this, some people want that
+
+나도 똑같아 십칠년 평생
+nado ttokgata sipchillyeon pyeongsaeng
+
+쫓았었던 love, 쫓았었던 fame
+jjochasseotdeon love, jjochasseotdeon fame
+
+So now, I want the whole world to know my name
+So now, I want the whole world to know my name
+
+
+Crash, smash, rock, mash up
+Crash, smash, rock, mash up
+
+Ooh, take what you want
+Ooh, take what you want
+
+돈, 멋, 명예, love and what?
+don, meot, myeong-ye, love and what?
+
+Ooh, take what you want
+Ooh, take what you want
+
+
+적당히론 배가 차지 않아 (않아)
+jeokdanghiron baega chaji ana (ana)
+
+들이켜, yuh, 마치 하마 (하마)
+deurikyeo, yuh, machi hama (hama)
+
+Smelling like a teen, 마치 Nirvana (Nirvana)
+Smelling like a teen, machi Nirvana (Nirvana)
+
+소리쳐, yuh, 'cause we wanna
+sorichyeo, yuh, 'cause we wanna
+
+
+That's what we all looking for
+That's what we all looking for
+
+That's what we all looking for
+That's what we all looking for
+
+(That's what we all—) da-ra-da-ra-ra
+(That's what we all—) da-ra-da-ra-ra
+
+That's what we all looking (one, two, three) for
+That's what we all looking (one, two, three) for
+
+
+What you want?
+What you want?
+
+What you want?
+What you want?
+
+What you want?
+What you want?
+
+
+What you want?
+What you want?
+
+What you want?
+What you want?
 </div>
 </details>
 
