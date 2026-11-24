@@ -39,9 +39,6 @@
   <a href="https://mitchimuffiin.atabook.org">ata</a> ★
   <a 
  <p align="center">
-  <a href="https://mitchimuffin.straw.page">straw</a> ★
-  <a 
- <p align="center">
   <a href="https://guns.lol/mitchimuffin">guns</a>  ★
   <a
   <p align="center">
